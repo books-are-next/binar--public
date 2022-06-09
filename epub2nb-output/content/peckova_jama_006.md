@@ -5,8 +5,6 @@ contentType: prose
 
 ## 1
 
-  
-
 Jámu hloubíme zpravidla shora dolů.
 
 To není rozmar, je to předpis. Vojenský předpis. Všechno vojenské je účelné a přesné. Služba ve vojsku není diskusní klub: co je řečeno, platí. – Proč _zpravidla,_ k čemu ta zadní vrátka? Slovo _zpravidla_ je tu kvůli nepředvídatelným okolnostem, a nepředvídatelné okolnosti nelze předvídat. Nelze je vyloučit ani na vojně. Za mimořádné situace, která sice dosud nenastala, ale co kdyby, můžeme jámu hloubit také jinak. Jenže jak?
@@ -61,17 +59,17 @@ Když staršina nadrotmistr Prkénko vypáral zašité vojíny z místnosti s 
 
 Zas měl Prkénko po ptákách, ani tentokrát se netrestalo. Kdyby se trestalo za kdejakou prkotinu, vojáci by se kapitánu Kotulánovi rozutekli a bylo by po vojně.
 
-Nad řekou visí mlha. Červené zimní slunce přikrčené k obzoru plíží se zvolna k cíli. V tomto lyrickém příšeří lidé bez domova sviní veřejný prostor kolem řeky, novou promenádu, po níž se promenují jen oni a psi. Bezpřístřešníci tu odhazují nepotřebné oděvy, které vyškemrali u Armády spásy, trousí za sebou po dlaždicích odpad, odlupují kusy železného zábradlí a prodávají to ve sběrnách, aby měli na chlast, na únik z tohoto světa, třesou se zimou a makotřasem; nemohou, neumějí, nechtějí na svém stavu nic měnit, táhnou městem, zanechávajíce po sobě smrad a špatný dojem, špatné svědomí. Naše špatné svědomí.
+_Nad řekou visí mlha. Červené zimní slunce přikrčené k obzoru plíží se zvolna k cíli. V tomto lyrickém příšeří lidé bez domova sviní veřejný prostor kolem řeky, novou promenádu, po níž se promenují jen oni a psi. Bezpřístřešníci tu odhazují nepotřebné oděvy, které vyškemrali u Armády spásy, trousí za sebou po dlaždicích odpad, odlupují kusy železného zábradlí a prodávají to ve sběrnách, aby měli na chlast, na únik z tohoto světa, třesou se zimou a makotřasem; nemohou, neumějí, nechtějí na svém stavu nic měnit, táhnou městem, zanechávajíce po sobě smrad a špatný dojem, špatné svědomí. Naše špatné svědomí._
 
-Po vodě plavou kačeny, lysky a pár ladných labutí, nohy mají zkřehlé zimou. Kdyby jen trochu chtěly, kdyby zamávaly křídly, kdyby vzlétly a rozletěly se, mohly by té zimě uletět. Kdeže! Líné jsou, tvrdí, že by si mohly o slunce spálit křídla. Raději si nechají v ledu zamrznout zadky.
+_Po vodě plavou kačeny, lysky a pár ladných labutí, nohy mají zkřehlé zimou. Kdyby jen trochu chtěly, kdyby zamávaly křídly, kdyby vzlétly a rozletěly se, mohly by té zimě uletět. Kdeže! Líné jsou, tvrdí, že by si mohly o slunce spálit křídla. Raději si nechají v ledu zamrznout zadky._
 
-Vyrazil jsem na pochod a přikrčen kráčím k obzoru, jako bych na obzor mohl dojít. Je to neuróza, bezděčná snaha čemusi uniknout, kamsi dojít, cosi najít…
+_Vyrazil jsem na pochod a přikrčen kráčím k obzoru, jako bych na obzor mohl dojít. Je to neuróza, bezděčná snaha čemusi uniknout, kamsi dojít, cosi najít…_
 
-– Kam kráčíš, Oldřichu Navrátile?
+_– Kam kráčíš, Oldřichu Navrátile?_
 
-– Vím já? Kolem světa…
+_– Vím já? Kolem světa…_
 
-Nad řekou byla mlha, slunce se plížilo po obzoru. Kačeny, lysky a labutě přimrzly k řece. Hasiči je vysekali, v hasičské zbrojnici rozmrazili a uložili v teple.
+_Nad řekou byla mlha, slunce se plížilo po obzoru. Kačeny, lysky a labutě přimrzly k řece. Hasiči je vysekali, v hasičské zbrojnici rozmrazili a uložili v teple._
 
 Vojín Pytlíček došplhal k opušťáku a vydal se za konceptuálními záležitostmi do Nuslí. V Nuslích zalezl do své nory, a když z ní vylezl, byl to docela jiný člověk – konceptualista. Už na sobě neměl vojenskou uniformu, nýbrž černý splývavý plášť až po kotníky, se zvednutým límcem, červený šál a šedivý klobouček s nepatrnou stříškou. Už nezvedal při chůzi pěsti do výše opasku ani nekráčel rázným krokem, plížil se podél zdí. V Nuslích nešplhal, v Nuslích mu mohla být vojna ukradená.
 
@@ -79,9 +77,7 @@ Loudavou chůzí se šoural k mostu. Ledabyle opřený o zeď činžovního do
 
 První, kdo skočí, bude jistě profesor Weinberger. Postává na mostě každý den a dívá se dolů. Zřejmě přemýšlí o tom, jak zdolat překážky, které mají skokům zabránit. Při svém bádání narazil na ostrově Bali na čtyři dívky, které odtud přivezl do Nuslí, a teď neví, co s nimi. Mohl by je házet z mostu postupně, jednu po druhé, a konceptualista Pytlíček by každý let zaznamenal. Zdá se však, že se profesor při své útlocitné povaze odhodlá ke skoku sám.
 
-  
-
-To byste, paňi, neřekla, co se v těch našich Nuslích děje! Tak ten profesor Weinberger, jak jsem vám posledně říkala, že zmizel, tak už se zas objevil a přivlekl do Nuslí čtyři děvčátka. Představte si, že s nimi žije v bytě tři plus jedna, starý mládenec, a kdoví, jestli jsou plnoletá. Snědé exotické krásky, česky jim to moc nejde, ale Vietnamky to nejsou, nejspíš odněkud z Tichomoří. A přitom ten profesor bádá o jednom cukráři z Vídně. Že by si je opatřil ve Vídni? Kdoví… Tak ten cukrář měl nebo ještě má cukrárnu kousek od vídeňských Hradčan. Jenomže ve Vídni, paňi, to nejsou žádná Hradčana, chybí jim ten náš kopeček, nemá to rozhled, šíři, obzory. Proto musel císař pán každé ráno na bábovku k paní Schratt, aby se všecko dozvěděl, aby mohl řídit říši, ona mu to pověděla, protože to věděla. Kdežto u nás pan prezident, paňi, vykoukne z okna, ani se nemusí naklánět, a má to jako na dlani. Kdepak náš pan prezident, ten by z toho kopečka mohl řídit celou zeměkouli! – Tak v té cukrárně, paňi, mají za výkladem celý Štefansdóm z marcipánu, zvony marcipánové zvoní bimbam, marcipánoví lidé si máčejí marcipánové ručičky v marcipánové svěcené vodičce, žehnají se, poklekají… A co myslíte, paňi, co ti namyšlení Vídeňáci před cukrárnou? Žasnou? Hledí na to u vytržení? Kdepak! Chodí kolem, kváčou po německy a… A nic! – To až pan profesor z Nuslí Weinberger jednou přijede do Vídně a žasne. Zkoprní: za výkladní skříní cukrárny samotný cukrář udělaný z marcipánu dává mu požehnání. Na ostatní kašle, jenom jemu žehná, Weinbergerovi! Nedivte se, paňi, že se z toho pan profesor divže nezvencnul. Přestal sbírat chrousty a pavouky, od té chvíle sbírá všechno, co kdy tomu cukráři odpadlo od ruky. I cedulky, co má koupit: tři housky kajzerky, dva litry mlíka, boty k ševci, půl tuctu preserv. a tak dále, vlastnoručně cukrářem napsané. A hned to vrzne do knížky s názvem Jeho dílo. Taky předpisy, paňi, na marcipán a vaječný likér, básničky z památníku a vylisované kvítky, slohová cvičení od toho cukráře z obecné školy sbírá. Ten profesor, paňi, nedělá nic jiného, než se hrabe v cukrářovi a pořád o něm po světě něco shání. Ale jak jenom mohl přijít k těm čtyřem děvčátkům, to mi povězte! – Tak na toho profesora má políčeno Pytlíček. Taky takový expert z Nuslí. Konceptualista. Ani nevím, paňi, co to je. Čeká dole pod mostem a myslí si, že zrovna Weinberger skočí jenom proto, že tam chodí na most každý den. Ale co by si, paňi, kdyby skočil, počala ta čtyři děvčátka sama v bytě tři plus jedna…
+> To byste, paňi, neřekla, co se v těch našich Nuslích děje! Tak ten profesor Weinberger, jak jsem vám posledně říkala, že zmizel, tak už se zas objevil a přivlekl do Nuslí čtyři děvčátka. Představte si, že s nimi žije v bytě tři plus jedna, starý mládenec, a kdoví, jestli jsou plnoletá. Snědé exotické krásky, česky jim to moc nejde, ale Vietnamky to nejsou, nejspíš odněkud z Tichomoří. A přitom ten profesor bádá o jednom cukráři z Vídně. Že by si je opatřil ve Vídni? Kdoví… Tak ten cukrář měl nebo ještě má cukrárnu kousek od vídeňských Hradčan. Jenomže ve Vídni, paňi, to nejsou žádná Hradčana, chybí jim ten náš kopeček, nemá to rozhled, šíři, obzory. Proto musel císař pán každé ráno na bábovku k paní Schratt, aby se všecko dozvěděl, aby mohl řídit říši, ona mu to pověděla, protože to věděla. Kdežto u nás pan prezident, paňi, vykoukne z okna, ani se nemusí naklánět, a má to jako na dlani. Kdepak náš pan prezident, ten by z toho kopečka mohl řídit celou zeměkouli! – Tak v té cukrárně, paňi, mají za výkladem celý Štefansdóm z marcipánu, zvony marcipánové zvoní bimbam, marcipánoví lidé si máčejí marcipánové ručičky v marcipánové svěcené vodičce, žehnají se, poklekají… A co myslíte, paňi, co ti namyšlení Vídeňáci před cukrárnou? Žasnou? Hledí na to u vytržení? Kdepak! Chodí kolem, kváčou po německy a… A nic! – To až pan profesor z Nuslí Weinberger jednou přijede do Vídně a žasne. Zkoprní: za výkladní skříní cukrárny samotný cukrář udělaný z marcipánu dává mu požehnání. Na ostatní kašle, jenom jemu žehná, Weinbergerovi! Nedivte se, paňi, že se z toho pan profesor divže nezvencnul. Přestal sbírat chrousty a pavouky, od té chvíle sbírá všechno, co kdy tomu cukráři odpadlo od ruky. I cedulky, co má koupit: tři housky kajzerky, dva litry mlíka, boty k ševci, půl tuctu preserv. a tak dále, vlastnoručně cukrářem napsané. A hned to vrzne do knížky s názvem Jeho dílo. Taky předpisy, paňi, na marcipán a vaječný likér, básničky z památníku a vylisované kvítky, slohová cvičení od toho cukráře z obecné školy sbírá. Ten profesor, paňi, nedělá nic jiného, než se hrabe v cukrářovi a pořád o něm po světě něco shání. Ale jak jenom mohl přijít k těm čtyřem děvčátkům, to mi povězte! – Tak na toho profesora má políčeno Pytlíček. Taky takový expert z Nuslí. Konceptualista. Ani nevím, paňi, co to je. Čeká dole pod mostem a myslí si, že zrovna Weinberger skočí jenom proto, že tam chodí na most každý den. Ale co by si, paňi, kdyby skočil, počala ta čtyři děvčátka sama v bytě tři plus jedna…
 
 Poté co staršina Prkénko vypáral vojáky Navrátila a Pecku ze skladu beden a vyhnal je na rajony, zatímco vojín Pytlíček číhal v Nuslích na skokana z mostu, začal Pecka na rajonech hluboce přemýšlet o skrýši, z níž by je žádné Prkénko nevyšťáralo. Zatímco ostatní vojíni včetně Oldřicha Navrátila pili po čepobití pivo Pod Andělskými křídly, dřepěl Pecka pod borovicemi a vynalézal.
 
@@ -89,15 +85,15 @@ Co je to jáma? hloubal o podstatě problému. Jáma je nic v něčem. Vznikne
 
 Zatímco vojíni Pod Andělskými křídly do sebe lili desítku s malými prcky, přestal Pecka hloubat a začal hloubit. Nejtěžší bylo jámu emancipovat. Ale i to se mu nakonec podařilo.
 
-Vypravil jsem se na cestu kolem světa, nerad bych natáhl bačkory v posteli. Správní chlapi umírají v botách. Má cesta kolem světa vede podél řeky, abych nezbloudil v bludišti cest. Všechny cesty někam vedou, u mnoha to však nestojí za to. Proto se nechávám vést řekou.
+_Vypravil jsem se na cestu kolem světa, nerad bych natáhl bačkory v posteli. Správní chlapi umírají v botách. Má cesta kolem světa vede podél řeky, abych nezbloudil v bludišti cest. Všechny cesty někam vedou, u mnoha to však nestojí za to. Proto se nechávám vést řekou._
 
 Galachov kdesi četl, že v jednom africkém kmeni nutili starce vylézt na vysoký strom. Pak ke stromu přistoupili statní muži a třásli jím. Kdo spadl a zabil se, toho snědli, těm, kteří se udrželi, bylo dovoleno ještě nějaký čas žít, _píše Vladimir Kantor ve Smrti penzisty. Kráčím s proudem řeky a potkávám vysoké stromy plné kormoránů. Pokouším se jimi zatřást – jsou to tlusté, košaté topoly, bez listí, únor –, ale nepohnu jimi, kdeže. Ti nepatřiční ptáci si mě nevšímají, jen trousí bílý trus. I kdybych setřásl, co s kormoránem? Občas jich několik vzlétne, opíšou vzdušný kruh a vrátí se na své místo. Mají kupředu natažené krky, těžkopádná těla, mávají úpěnlivě křídly, aby nežbluňkli do řeky, snaží se dohonit svou hlavičku, ale nikdy ji nedoženou._
 
-Zima je nezasněžená, holomráz. Jdu rychle, snad se trochu bojím, aby mě nesnědli. A přitom jsem dosti zdatný, kdepak, mne by nesetřásli! Myslím, že bych se udržel, ale nejsem si jistý… Cesta je přímá, dostatečně široká. V holomrazu potkávám běžce s ušima pod klapkami, cyklistu s výrazem štvance, psa smířeného se životem. Také postaršího pána v teplém oblečení.
+_Zima je nezasněžená, holomráz. Jdu rychle, snad se trochu bojím, aby mě nesnědli. A přitom jsem dosti zdatný, kdepak, mne by nesetřásli! Myslím, že bych se udržel, ale nejsem si jistý… Cesta je přímá, dostatečně široká. V holomrazu potkávám běžce s ušima pod klapkami, cyklistu s výrazem štvance, psa smířeného se životem. Také postaršího pána v teplém oblečení._
 
-„Takže…,“ říká ten pán, zastaví se a těžce dýchá; ten by se na stromě neudržel. „Kdepak,“ říká, „předtím tu byla hrbolatá cesta, než ji pokazili asfaltem. Od té doby je tu provoz jak na Karlově mostě. Jakmile vykoukne sluníčko, už jsou tu: na bruslích, na kolech, s kočárky, bez kočárků, běžci, psi…“ Pán se zarazil a nemohl popadnout dech. Až jsem se polekal, že neumře v posteli. Dech nakonec popadl a já jsem mohl pokračovat v cestě.
+_„Takže…,“ říká ten pán, zastaví se a těžce dýchá; ten by se na stromě neudržel. „Kdepak,“ říká, „předtím tu byla hrbolatá cesta, než ji pokazili asfaltem. Od té doby je tu provoz jak na Karlově mostě. Jakmile vykoukne sluníčko, už jsou tu: na bruslích, na kolech, s kočárky, bez kočárků, běžci, psi…“ Pán se zarazil a nemohl popadnout dech. Až jsem se polekal, že neumře v posteli. Dech nakonec popadl a já jsem mohl pokračovat v cestě._
 
-Mladí mužové, kteří dneska třesou stromy, si neuvědomují, že zítra se oni budou muset zuby nehty držet.
+_Mladí mužové, kteří dneska třesou stromy, si neuvědomují, že zítra se oni budou muset zuby nehty držet._
 
 U Bdělé pod Bezdězem v borovicovém lese žili vojáci pod stany, protože kasárna tam neměli a kloudnou zemljanku v písku nevykopeš. Ani jámu pro tank T-25 nemohli vojáci vykopat, pořád se jim zasypávala pískem už vyhloubeným. Proto uvítali, když je kapitán Kotulán svolal k politickému školení mužstva. Odložili nářadí a odebrali se do politického stanu o čtyřech žerdích.
 
@@ -139,11 +135,11 @@ U Bdělé pod Bezdězem v borovicovém lese žili vojáci pod stany, protože 
 
 „Ale vždyť se už sám rozpadl!“ volali za ním – neslyšel.
 
-Kolem světa chodím odpoledne po kávě a vracím se za tmy, protože v zimě tma přichází brzy a potmě je svět špatně viditelný. Doma si rozsvítím a můžu si číst ve Vladimiru Karloviči Kantorovi povzbudivý text o setřásání starců. Potmě bych mohl špatně šlápnout, uklouznout a upadnout. Je výhodné chodit kolem světa po odpolednech vyrážet z domova a domů se vracet, odpočinout si řádně, posilnit se a zítra nanovo. Jít kolem světa a přespávat ve své posteli.
+_Kolem světa chodím odpoledne po kávě a vracím se za tmy, protože v zimě tma přichází brzy a potmě je svět špatně viditelný. Doma si rozsvítím a můžu si číst ve Vladimiru Karloviči Kantorovi povzbudivý text o setřásání starců. Potmě bych mohl špatně šlápnout, uklouznout a upadnout. Je výhodné chodit kolem světa po odpolednech vyrážet z domova a domů se vracet, odpočinout si řádně, posilnit se a zítra nanovo. Jít kolem světa a přespávat ve své posteli._
 
-Cestou se vyhýbám lidem, abych s nimi nemusel obcovat, abych nemusel poslouchat jejich názory a sdělovat jim svá stanoviska. Málokdo vám svěří něco radostného. Jenom na vás házejí svoje stesky, nářky, křivdy a bolesti. Nechci to jejich skuhrání o zkaženosti světa a jeho brzkém konci poslouchat, svého mám dost! Jako by se o něj báli, o ten ošklivý svět. Proč by neměl skončit, když je na tom tak špatně?
+_Cestou se vyhýbám lidem, abych s nimi nemusel obcovat, abych nemusel poslouchat jejich názory a sdělovat jim svá stanoviska. Málokdo vám svěří něco radostného. Jenom na vás házejí svoje stesky, nářky, křivdy a bolesti. Nechci to jejich skuhrání o zkaženosti světa a jeho brzkém konci poslouchat, svého mám dost! Jako by se o něj báli, o ten ošklivý svět. Proč by neměl skončit, když je na tom tak špatně?_
 
-Nevadí mi bruslaři, cyklisté a běžci s očima kupředu upřenýma, ženoucí se kamsi a zase zpátky, zahledění do sebe, do svého výkonu, k stanovenému cíli; od těch nehrozí, že by mě oslovili, pozastavili na cestě kolem světa, že by na mne vylili svůj kýbl strastí, obav a bezradnosti. Ti mne mohou nanejvýš porazit, přerazit, vyrazit mi dech, lebku rozrazit a pak zavolat záchranku. Anebo ujet z místa činu. – Nejhorší jsou ze stromu setřesení starci, kterým se podařilo uniknout. Mají na čele stigma setřesenosti: ačkoli naživu, jsou už odepsaní. Plouží se od ničeho k ničemu, vláčejí za sebou praktické tašky na kolečkách, nadité včerejšími novinami, unavenou zeleninou a konzervami s prošlou lhůtou, a běda tomu, koho polapí! Strčí ho do tašky, odvlečou do svého kutlochu a tam do něj dují o zkaženosti světa, zubními protézami klapou, proklínají lidstvo a svůj zmarněný život. Tak dlouho, až se staneš jedním z nich.
+_Nevadí mi bruslaři, cyklisté a běžci s očima kupředu upřenýma, ženoucí se kamsi a zase zpátky, zahledění do sebe, do svého výkonu, k stanovenému cíli; od těch nehrozí, že by mě oslovili, pozastavili na cestě kolem světa, že by na mne vylili svůj kýbl strastí, obav a bezradnosti. Ti mne mohou nanejvýš porazit, přerazit, vyrazit mi dech, lebku rozrazit a pak zavolat záchranku. Anebo ujet z místa činu. – Nejhorší jsou ze stromu setřesení starci, kterým se podařilo uniknout. Mají na čele stigma setřesenosti: ačkoli naživu, jsou už odepsaní. Plouží se od ničeho k ničemu, vláčejí za sebou praktické tašky na kolečkách, nadité včerejšími novinami, unavenou zeleninou a konzervami s prošlou lhůtou, a běda tomu, koho polapí! Strčí ho do tašky, odvlečou do svého kutlochu a tam do něj dují o zkaženosti světa, zubními protézami klapou, proklínají lidstvo a svůj zmarněný život. Tak dlouho, až se staneš jedním z nich._
 
 Oděn v konceptualistickém oděvu číhal Pytlíček s fotografickým aparátem Fujifilm na skokana. Opřený jakoby nedbale o zeď nespustil oči z Nuselského mostu. Snad se objeví, měl by se objevit! Zítra ráno v sedm hodin musí být vojín Pytlíček zpátky, v písku pod borovicemi nastoupený k rozvodu do zaměstnání. Třeba dnes konečně skočí. Vždycky touto dobou se objeví, celé hodiny zadumaně hledí do hlubiny, poznamenává si cosi do notýsku, váhá, dosud se neodhodlal. Neskočí-li dnes, promarní šanci dostat se do Pytlíčkova konceptu. Kdoví, zda už zítra nepotáhnou do války… Nebo pozítří.
 
@@ -227,13 +223,11 @@ Na Nuselském mostě je klid, auta nevadí a chodců tudy projde málo. Pohled 
 
 Konceptualista Pytlíček ostrouhal kolečka, profesor Weinberger opět neskočil.
 
-Albert Speer, nacista, chodil kolem světa ve věznici. O svém putování si vedl pečlivé záznamy: kolik kroků, kolik kilometrů, od kolika do kolika, kam došel, co ho cestou potkalo… Proč si psal tak pečlivé záznamy? Jenom proto, že byl pečlivý, systematický a pilný? Anebo chtěl, aby po něm něco zůstalo; také něco neškodného, nejen vyschlé slzy a hromady mrtvol, na nichž se podílel. Zůstaly po něm zápisky z cesty kolem světa ve věznici Spandau. Kdo by to četl…
+_Albert Speer, nacista, chodil kolem světa ve věznici. O svém putování si vedl pečlivé záznamy: kolik kroků, kolik kilometrů, od kolika do kolika, kam došel, co ho cestou potkalo… Proč si psal tak pečlivé záznamy? Jenom proto, že byl pečlivý, systematický a pilný? Anebo chtěl, aby po něm něco zůstalo; také něco neškodného, nejen vyschlé slzy a hromady mrtvol, na nichž se podílel. Zůstaly po něm zápisky z cesty kolem světa ve věznici Spandau. Kdo by to četl…_
 
-Léta jsem si myslel, že bych měl po sobě také něco zanechat, aby to tu bylo, až tu nebudu: zápisky z cesty kolem světa, vyrytou brázdu, jméno v kameni, něco pozitivního. – Ale k čemu by to bylo?
+_Léta jsem si myslel, že bych měl po sobě také něco zanechat, aby to tu bylo, až tu nebudu: zápisky z cesty kolem světa, vyrytou brázdu, jméno v kameni, něco pozitivního. – Ale k čemu by to bylo?_
 
 ## 2
-
-  
 
 Všichni už byli na místě, i vojín Pytlíček. Dorazil těsně před večerkou, divže nevrazil do zachmuřeného podplukovníka v čerstvě vyfasovaných maskáčích.
 
@@ -309,9 +303,9 @@ Ještě chvíli klábosili vojíni se záložním podplukovníkem, který si dos
 
 Útvar se rozešel pro polní láhve.
 
-Na bílém, guánem obarveném topolu s opadaným listím zasedají jak černé hrušky kormoráni, hlavičky mezi rameny, civí před sebe. Co tu ti cizí ptáci pohledávají? A co my tu…
+_Na bílém, guánem obarveném topolu s opadaným listím zasedají jak černé hrušky kormoráni, hlavičky mezi rameny, civí před sebe. Co tu ti cizí ptáci pohledávají? A co my tu…_
 
-Moje cesta kolem světa se vymyká obecnému vnímání času, jeho posloupnosti a měřitelnosti. Jdu kolem světa, jako bych po něčem pátral, ačkoli si nemyslím, že bych něco ztratil, že mi něco chybí. Hledám cosi, nevím co, kráčím někam, nevím kam; kdosi jsem, a nevím kdo… A když najdu to, co nehledám, když to posbírám a poskládám dohromady, co s tím? Zjišťuji, že to není ono. Je to ošklivé, upatlané… Upustím, co jsem našel, a jdu dál, rozhlížím se kolem, jestli ještě něco, a ono nic. Třeba už zítra, nebo snad pozítří, anebo někdy…
+_Moje cesta kolem světa se vymyká obecnému vnímání času, jeho posloupnosti a měřitelnosti. Jdu kolem světa, jako bych po něčem pátral, ačkoli si nemyslím, že bych něco ztratil, že mi něco chybí. Hledám cosi, nevím co, kráčím někam, nevím kam; kdosi jsem, a nevím kdo… A když najdu to, co nehledám, když to posbírám a poskládám dohromady, co s tím? Zjišťuji, že to není ono. Je to ošklivé, upatlané… Upustím, co jsem našel, a jdu dál, rozhlížím se kolem, jestli ještě něco, a ono nic. Třeba už zítra, nebo snad pozítří, anebo někdy…_
 
 Do Bdělé pod Bezdězem zavítal Ústřední vojenský soubor písní, tanců a lidových vyprávěnek Rudého praporu ze Sušice (ÚVSPTLVRPZS) za účelem rozjasnění myslí vojáků před jejich tažením. Přijel na pozvání kapitána Kotulána, aby si vojáci mohli odnést do bojů pěknou vzpomínku na vlast, pro niž jsou odhodláni vykrvácet. Do hospody Pod Andělskými křídly se tak velký soubor nevešel, musel vzít zavděk kulturní stodolou.
 
@@ -333,25 +327,25 @@ Na příčný trám v kulturní stodole si posedali všichni zúčastnění voj
 
 Vystoupení ÚVSPTLVRPZS mohlo začít.
 
-Ačkoli je zima, zima není. Neviditelní krtci viditelně pracují: hrnou to před sebou do výšky. Také rez na železném plotě nezahálí, pílí. Nebude-li natřen antikorozní barvou, plot se rozpadne. Kačenám není zima a běžci běží prostovlasí tam a zase zpátky.
+_Ačkoli je zima, zima není. Neviditelní krtci viditelně pracují: hrnou to před sebou do výšky. Také rez na železném plotě nezahálí, pílí. Nebude-li natřen antikorozní barvou, plot se rozpadne. Kačenám není zima a běžci běží prostovlasí tam a zase zpátky._
 
-Nemaje cíle, nebojím se, že bych zabloudil.
+_Nemaje cíle, nebojím se, že bych zabloudil._
 
-V Zámcích za potokem potkal jsem mladého muže s modrýma očima, ve špinavých botách. Položil mi otázku.
+_V Zámcích za potokem potkal jsem mladého muže s modrýma očima, ve špinavých botách. Položil mi otázku._
 
-„Je to ještě daleko?“
+_„Je to ještě daleko?“_
 
-„Dost daleko…“ Nemohl jsem vědět, kam má namířeno. „Jdu kolem světa a to je hodně daleko. Anebo hodně blízko? Jak se to vezme…“
+_„Dost daleko…“ Nemohl jsem vědět, kam má namířeno. „Jdu kolem světa a to je hodně daleko. Anebo hodně blízko? Jak se to vezme…“_
 
-„Kolem světa? Ale to je dobrý nápad, to půjdu s vámi!“
+_„Kolem světa? Ale to je dobrý nápad, to půjdu s vámi!“_
 
-„Tak to tedy prr! To tak, abyste mi cestou vyprávěl svůj příběh, sděloval názory, pokoušel se mě rozveselit! Abyste mne rozptyloval! Kolem světa chodí každý sám za sebe.“
+_„Tak to tedy prr! To tak, abyste mi cestou vyprávěl svůj příběh, sděloval názory, pokoušel se mě rozveselit! Abyste mne rozptyloval! Kolem světa chodí každý sám za sebe.“_
 
-„Promiňte, jsem ještě mlád, mám modré oči a špinavé boty. Ale děkuji za nápad, dám na vaši radu, půjdu sám za sebe. Sám kolem světa…“
+_„Promiňte, jsem ještě mlád, mám modré oči a špinavé boty. Ale děkuji za nápad, dám na vaši radu, půjdu sám za sebe. Sám kolem světa…“_
 
-„A pište o tom protokol,“ poradil jsem mu ještě.
+_„A pište o tom protokol,“ poradil jsem mu ještě._
 
-„Vidíte, to by mě nenapadlo…“
+_„Vidíte, to by mě nenapadlo…“_
 
 Opona v kulturní stodole se rozhrnula… Na jevišti stál úplný Ústřední vojenský soubor písní, tanců a lidových vyprávěnek Rudého praporu ze Sušice. Byl v uniformách a zářil úsměvy. Vojáci usazení na příčných trámech ho přivítali bouřlivým potleskem. Soubor se dal do zpěvu:
 
@@ -463,9 +457,9 @@ Strážný bezmocně sledoval paty vířící písek na cestě k ledabyle zašn
 
 „Rád bych, ale fakt nemůžu. Vždyť já tomu velím!“
 
-Nejhůř se chodí kolem světa v sobotu odpoledne na počátku jara, kdy kočičky předou na jívách a ve vlhké hlíně žloutne podběl; kopřivy teprve vyrážejí, jsou načervenalé a pilovité, ještě nepálí. Občané dosud neodjeli k mořím a na chatu se jim nechce. Co by tam dělali? Bruslařka s nohama na kolečkách strká před sebou kočárek s rabátkem za průhledným igelitem, vytváří kolem sebe vítr, divže mi nesmekne čepici. Také cyklisté sviští s cvrkotem kol kolem a psi se štěkotem radostným cválají s ušima vlajícíma ve větru. Caparti na hrkavých samohybech se odstrkují nožkama, řítí se kolem světa bezhlavě, nehledí nalevo napravo, nedbají, co je před nimi, cíl je neznámý, řítí se, jen aby se řítili, rozkoší se zalykají, a buď upadnou a začnou řvát, nebo je vyděšený dospělý dožene včas, a tu se dají do smíchu radostného, začíná jaro.
+_Nejhůř se chodí kolem světa v sobotu odpoledne na počátku jara, kdy kočičky předou na jívách a ve vlhké hlíně žloutne podběl; kopřivy teprve vyrážejí, jsou načervenalé a pilovité, ještě nepálí. Občané dosud neodjeli k mořím a na chatu se jim nechce. Co by tam dělali? Bruslařka s nohama na kolečkách strká před sebou kočárek s rabátkem za průhledným igelitem, vytváří kolem sebe vítr, divže mi nesmekne čepici. Také cyklisté sviští s cvrkotem kol kolem a psi se štěkotem radostným cválají s ušima vlajícíma ve větru. Caparti na hrkavých samohybech se odstrkují nožkama, řítí se kolem světa bezhlavě, nehledí nalevo napravo, nedbají, co je před nimi, cíl je neznámý, řítí se, jen aby se řítili, rozkoší se zalykají, a buď upadnou a začnou řvát, nebo je vyděšený dospělý dožene včas, a tu se dají do smíchu radostného, začíná jaro._
 
-Mezitím se otřásl svět a vlna tsunami spláchla všechno, nač dosáhla: domy, stromy, lidi a zvířata, atomové elektrárny… Dosáhla daleko a způsobila neštěstí, jaké se nedá spočítat ani na prstech všech rukou, které se zvedly k nebi v zoufalství.
+_Mezitím se otřásl svět a vlna tsunami spláchla všechno, nač dosáhla: domy, stromy, lidi a zvířata, atomové elektrárny… Dosáhla daleko a způsobila neštěstí, jaké se nedá spočítat ani na prstech všech rukou, které se zvedly k nebi v zoufalství._
 
 Tady nejde o vlastní rozhodnutí, ukončení procesu přemítání, zvažování všech pro a proti. Tady nejde o svobodnou vůli, voják do války musí. Válka není situace pro zdravý rozum. Oldřich Navrátil by nejraději vzal nohy na ramena a upaloval pryč, na opačný konec světa. Tam by se schoulil do klubíčka, zavíčkoval by se jako hlemýžď v ulitě a počkal, až to skončí. Jenže co pak?
 
@@ -511,13 +505,13 @@ Z vojenského ležení u Bdělé pod Bezdězem odjížděla paní Milada Kotul
 
 Kapitán Kotulán se znovunabytou tváří mohl předstoupit před vojáky.
 
-Pápěří, všude samé pápěří, topoly se zbláznily; pokaždé na jaře už pokročilém se topoly zblázní, rozpářou peřiny a rozešlou pápěří po větru: na trávu, na ulice, na vodu. Bílé chmýří si posedalo na hladinu, vrství se, řeka se mění v bílé boa. Topolové boa spočívá městu na šíji. Přidaly se taky odkvetlé pampelišky.
+_Pápěří, všude samé pápěří, topoly se zbláznily; pokaždé na jaře už pokročilém se topoly zblázní, rozpářou peřiny a rozešlou pápěří po větru: na trávu, na ulice, na vodu. Bílé chmýří si posedalo na hladinu, vrství se, řeka se mění v bílé boa. Topolové boa spočívá městu na šíji. Přidaly se taky odkvetlé pampelišky._
 
-Ani medovou vůni akátových květů nelze pominout, mámí hmyz a udivené chodce, visuté hrozny ukapávají patlavou šťávu na dlažbu a na střechy aut, zasněné chodce svádí k nemravným úvahám. Černé bezy se nesměle pokoušejí rozkvést bílými latami. Je pozdní jaro, jaro na plné pecky, a já jdu kolem světa. Mám čas a boty, mám chuť a nohy, co bych nešel! Je to lepší než vysedávat v hospodě nebo se jen tak poflakovat od ničeho k ničemu.
+_Ani medovou vůni akátových květů nelze pominout, mámí hmyz a udivené chodce, visuté hrozny ukapávají patlavou šťávu na dlažbu a na střechy aut, zasněné chodce svádí k nemravným úvahám. Černé bezy se nesměle pokoušejí rozkvést bílými latami. Je pozdní jaro, jaro na plné pecky, a já jdu kolem světa. Mám čas a boty, mám chuť a nohy, co bych nešel! Je to lepší než vysedávat v hospodě nebo se jen tak poflakovat od ničeho k ničemu._
 
-Přes asfaltový chodník se od skaliska plazí k řece užovka podplamatá, hodlá ulovit rybku a vsoukat ji do sebe. Chvíli předstírá, že je zmijí otravnou, a když jí na to neskočím, staví se mrtvou, bláhová, a netuší, že by ji mohl přejet hbitý cyklista nebo nemotorný chlapeček na trojkolce, aniž by si toho všimli. Špičkou boty ji postrčím z asfaltu do trávy. Cesta kolem světa je plná všelijakých úskalí a nebezpečenství… A právě to ji činí přitažlivou.
+_Přes asfaltový chodník se od skaliska plazí k řece užovka podplamatá, hodlá ulovit rybku a vsoukat ji do sebe. Chvíli předstírá, že je zmijí otravnou, a když jí na to neskočím, staví se mrtvou, bláhová, a netuší, že by ji mohl přejet hbitý cyklista nebo nemotorný chlapeček na trojkolce, aniž by si toho všimli. Špičkou boty ji postrčím z asfaltu do trávy. Cesta kolem světa je plná všelijakých úskalí a nebezpečenství… A právě to ji činí přitažlivou._
 
-Cesta kolem světa nemá konce. Chtěl bych vidět toho šikulu, který by obešel svět a trefil se přesně do místa, odkud vyrazil. Téměř všichni chodci kolem světa ten bod minou o hodných pár kilometrů a nezbude jim než pokračovat dál, znovu kolem světa, znovu a znovu, třeba napodruhé, napotřetí budou mít štěstí a trefí se… Ale i o tom lze úspěšně pochybovat.
+_Cesta kolem světa nemá konce. Chtěl bych vidět toho šikulu, který by obešel svět a trefil se přesně do místa, odkud vyrazil. Téměř všichni chodci kolem světa ten bod minou o hodných pár kilometrů a nezbude jim než pokračovat dál, znovu kolem světa, znovu a znovu, třeba napodruhé, napotřetí budou mít štěstí a trefí se… Ale i o tom lze úspěšně pochybovat._
 
 Tak dobře se už dlouho nevyspala. Členové Ústředního vojenského souboru písní, tanců a lidových vyprávěnek Rudého praporu ze Sušice si v domovské Sušici nikdy dlouho nepobyli. Většinu času trávili na cestách, přespávali v hotelích a v hotýlcích, v turistických ubytovnách, taky na kasárenských kavalcích se o slamník dělili s čipernými myšmi zavrtanými ve slámě. Praporčice Melodie Podpolanská se probudila ve tmě tmoucí, temnější než nejtemnější myšlenka. Rozespalá nevěděla, kde vězí a kde tu mají koupelnu. Chvíli šmátrala po stěnách, hledala vypínač. Při tom šmátrání se jí začaly vybavovat okamžiky před usnutím: estráda v Bdělé pod Bezdězem, obdivné pohledy a frenetický potlesk vojáků diváků rozvášněných uměleckým zážitkem, úprk v písku mezi borovicemi, manžel v patách a záchrana v Peckově jámě. To by v tom byl čert, aby takový specialista neměl v jámě osvětlení! Po chvilce tápání natápala vypínač hned za hlavou. Zatáhla za šňůrku, a bylo světlo! Pak našla koupelnu, dala si sprchu a vyčistila zuby. Pecka byl člověk systematický a předvídavý, zbudoval jámu s vybraným vkusem a vybavil ji vším potřebným. Vyfénovala si vlasy a zachumlala se do bělostného koupacího pláště. V útulné kuchyňce našla plnou ledničku, celozrnný chléb a nenačatou krabici s kávou, vařič na propan-butan, stůl pokrytý lněným ubrusem s cikádami, olivovými ratolestmi a vlčími máky, židle nejspíš z Ikey. Co víc by si mohl člověk po ránu přát… – Tady budu bydlet!
 
@@ -537,16 +531,16 @@ Praporčice Melodie Podpolanská povylezla z Peckovy jámy, sáhla zkušenou ru
 
 Ani poté, co se vypotácel z jámy, z něj obrázek Aničky Dušičky nevyprchal.
 
-Kormoráni odlétli do neznáma, topolové pápěří odplulo s řekou a utonulo v mořských hlubinách. Kačeny březňačky vyvedly mladé, plavou, ale nelétají, ještě jim nedorostly perutě. Smějí se a štěbetají, protože je pěkně a máma je tu s nimi, je tu kvůli nim.
+_Kormoráni odlétli do neznáma, topolové pápěří odplulo s řekou a utonulo v mořských hlubinách. Kačeny březňačky vyvedly mladé, plavou, ale nelétají, ještě jim nedorostly perutě. Smějí se a štěbetají, protože je pěkně a máma je tu s nimi, je tu kvůli nim._
 
-Šlapu si kolem světa v sandálech, osvobozené prsty u nohou se rozhlížejí po kraji. Kvetou růže, koukol se zubí v přerůstající trávě. Sekat, sekáči, sekat! Než vás to přeroste. Jdu kolem světa a myslím na Sovětský svaz. Proč právě na něj, když kvetou růže? Sovětský svaz už přece není, sám se zrušil. Sovětský svaz nás poznamenal. Ačkoli jsme se tomu bránili, ačkoli si to neradi připouštíme, je tomu tak. Vyrostli a zestárli jsme v jeho stínu, v jeho područí. Ovlivnil naše životy. Nelze ho pominout, protože je to náš problém. Zapeklitá věc. Syndrom naší generace. Sovětský svaz je náš osud.
+_Šlapu si kolem světa v sandálech, osvobozené prsty u nohou se rozhlížejí po kraji. Kvetou růže, koukol se zubí v přerůstající trávě. Sekat, sekáči, sekat! Než vás to přeroste. Jdu kolem světa a myslím na Sovětský svaz. Proč právě na něj, když kvetou růže? Sovětský svaz už přece není, sám se zrušil. Sovětský svaz nás poznamenal. Ačkoli jsme se tomu bránili, ačkoli si to neradi připouštíme, je tomu tak. Vyrostli a zestárli jsme v jeho stínu, v jeho područí. Ovlivnil naše životy. Nelze ho pominout, protože je to náš problém. Zapeklitá věc. Syndrom naší generace. Sovětský svaz je náš osud._
 
-Když vás kvůli Sovětskému svazu zavřou do vězení, nemůžete ho jen tak hodit za hlavu a dívat se na kačenky, jak si plavou, přestože na něj chcete zapomenout, přestože je rozpadlý. Nebo spíš opadaný. Kousky, které z něj opadaly, si nevedou nejlíp. Co když je napadne znovu se přimknout k tomu dubisku?
+_Když vás kvůli Sovětskému svazu zavřou do vězení, nemůžete ho jen tak hodit za hlavu a dívat se na kačenky, jak si plavou, přestože na něj chcete zapomenout, přestože je rozpadlý. Nebo spíš opadaný. Kousky, které z něj opadaly, si nevedou nejlíp. Co když je napadne znovu se přimknout k tomu dubisku?_
 
-Bylo to obludné a všudypřítomné, nepředstavitelné monstrum, svíralo nás, lezlo za námi pod peřinu a do svědomí, do mozku, peskovalo, přikazovalo a zakazovalo, manipulovalo námi. Sovětský svaz určoval, poučoval a poroučel, ovlivňoval, zanášel k nám své zvyky, svoji kulturu, cizí a jinačí, svého boha. Vlezl do našeho domu a stal se v něm pánem. Nařizoval, jak máme žít: co ano a co ne. Měl nás pod palcem. Co sám nepotřeboval, mohli jsme si nechat – třeba jazyk –, jako zdání suverenity. Co se mu hodilo, ukradl. A přitom očekával, že ho budeme milovat. Nařizoval nám, abychom ho milovali. Velký, silný, s klackem v ruce byl naším ochráncem. Za výpalné. Požadoval obdiv a lásku.
+_Bylo to obludné a všudypřítomné, nepředstavitelné monstrum, svíralo nás, lezlo za námi pod peřinu a do svědomí, do mozku, peskovalo, přikazovalo a zakazovalo, manipulovalo námi. Sovětský svaz určoval, poučoval a poroučel, ovlivňoval, zanášel k nám své zvyky, svoji kulturu, cizí a jinačí, svého boha. Vlezl do našeho domu a stal se v něm pánem. Nařizoval, jak máme žít: co ano a co ne. Měl nás pod palcem. Co sám nepotřeboval, mohli jsme si nechat – třeba jazyk –, jako zdání suverenity. Co se mu hodilo, ukradl. A přitom očekával, že ho budeme milovat. Nařizoval nám, abychom ho milovali. Velký, silný, s klackem v ruce byl naším ochráncem. Za výpalné. Požadoval obdiv a lásku._
 
-Sovětský svaz se valil dějinami, které ukradl jiným národům. Země­žrout, lidožrout, mrchožrout, všechnožrout převálcoval vše, co mu stálo v cestě.
+_Sovětský svaz se valil dějinami, které ukradl jiným národům. Země­žrout, lidožrout, mrchožrout, všechnožrout převálcoval vše, co mu stálo v cestě._
 
-Byli jsme vojáky s pěticípou hvězdou na opasku, vojáky Varšavské smlouvy, jeho vojáky. Byli jsme cvičeni k tomu, abychom mu – příteli nejvěrnějšímu – pomáhali. Kdyby se někdo cukal a nechtěl být sežrán, abychom ho také my, horliví pomocníčci a spolupachatelé, popadli, upekli, na kousky nakrájeli, předžvýkali, obludě přistrčili, obludu nasytili. A nakonec se také nechali sežrat.
+_Byli jsme vojáky s pěticípou hvězdou na opasku, vojáky Varšavské smlouvy, jeho vojáky. Byli jsme cvičeni k tomu, abychom mu – příteli nejvěrnějšímu – pomáhali. Kdyby se někdo cukal a nechtěl být sežrán, abychom ho také my, horliví pomocníčci a spolupachatelé, popadli, upekli, na kousky nakrájeli, předžvýkali, obludě přistrčili, obludu nasytili. A nakonec se také nechali sežrat._
 
-Nejraději bych Sovětský svaz přeškrtl, vypustil, vyzmizíkoval, zapomněl na něj a dělal, že tu nikdy nebyl. Jenže to nejde, v jeho stínu, pod jeho křídly a s ním jsem žil převážnou část života. Kdybych se jí zřekl, nebyl bych to já. Musím na Sovětský svaz myslet a radovat se přitom, že se rozpadl; musím se bát, že by se mohl zvednout a znovu se pustit do díla. Protože ho znám, protože jsem ho zažil. Nemohu předstírat, že to nic, co bylo, bylo, odpusťme si, co jsme si… A dívat se na řeku plnou chmýří z topolů, na rozkvetlé růže, na kačenky s křídly dosud nedovyvinutými, jak šupajdí po hladině za rozesmátou matkou kačenou.
+_Nejraději bych Sovětský svaz přeškrtl, vypustil, vyzmizíkoval, zapomněl na něj a dělal, že tu nikdy nebyl. Jenže to nejde, v jeho stínu, pod jeho křídly a s ním jsem žil převážnou část života. Kdybych se jí zřekl, nebyl bych to já. Musím na Sovětský svaz myslet a radovat se přitom, že se rozpadl; musím se bát, že by se mohl zvednout a znovu se pustit do díla. Protože ho znám, protože jsem ho zažil. Nemohu předstírat, že to nic, co bylo, bylo, odpusťme si, co jsme si… A dívat se na řeku plnou chmýří z topolů, na rozkvetlé růže, na kačenky s křídly dosud nedovyvinutými, jak šupajdí po hladině za rozesmátou matkou kačenou._
