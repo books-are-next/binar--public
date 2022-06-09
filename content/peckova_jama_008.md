@@ -5,36 +5,32 @@ contentType: prose
 
 ## 1
 
-  
-
 Lada Niva byla velitelským vozidlem, protože v ní seděl velitel, to dá rozum. Ačkoli byl plukovník Kotulán v civilních šatech, byl velitelem, protože vojáka nedělá uniforma a velitele z vojáka nedělají frčky na náramenících. Velitele dělá z vojáka horoucí srdce, chladná hlava a pověření; schopnost velet a nést odpovědnost za důsledky, které velení způsobí. Velitel nemůže být bezbřehý, všechápavý liberál, který připouští diskusi o kdejaké bzdině, přesvědčený o tom, že každý má právo na vlastní názor, byť by byl sebepitomější nebo třeba až moc geniální. S takovou by se žádná válka nedala vést. Velitel musí mít vždycky pravdu, i kdyby ji neměl. Bezradný velitel je hotové neštěstí a smrtelné nebezpečí, takového je nejlépe se zbavit co nejdříve, než tou svou bezradností spáchá něco strašného, než fatálně selže a přivodí zkázu vojákům jemu svěřeným. Bezradným velitelem plukovník Kotulán nebyl, věděl si rady v každém okamžiku, v každé situaci. Jako třeba teď.
 
 „Vpřed!“ zavelel.
 
 Lada Niva se zvolna rozjela. Za ní červený gazík pizza do domu se zapřaženou červenou polní kuchyní, v jejíchž útrobách se ne­uvelebil kuchař Kulajda ani Jurajda, nýbrž cosi hrozivého, bez čeho se vedení žádné války neobejde. Za války se totiž, co si budeme povídat, střílí do lidí. Kdo nepochopí tento princip, ať se vrátí domů a neplete se mezi muže a ženu, kteří se rozhodli pro válku.
 
-> Vojáci z naší vsi,  
-> nic neříkejte mámě,  
-> řekněte jí, že jsem  
-> v Holandsku zajatcem,  
-> a můžete jí říct,  
-> že nevrátím se víc.
+_Vojáci z naší vsi,  
+nic neříkejte mámě,  
+řekněte jí, že jsem  
+v Holandsku zajatcem,  
+a můžete jí říct,  
+že nevrátím se víc._
 
-Cestou kolem světa podél řeky přidala se ke mně ondatra. Kvetly hlohy a rozrazil rezekvítek, po pampeliškách zbylo bílé chmýří na dutých lodyhách. Hrabě Colloredo-Mansfeld roku 1905 přivezl z Ameriky deset párů ondater a vypustil je u Dobříše do rybníka: – Milujte se a množte se! Od té doby do dneška dobyly ondatry Evropu, celý Sovětský svaz a pronikly až do Číny. Některým se do výbojů nechtělo, zdomácněly u nás. Plavala v řece a já jsem podél řeky kráčel kolem světa. Podél řeky nelze zabloudit. Někdy byla rychlejší a počkala na mne, někdy jsem počkal já na ni, jindy jsme se pohybovali stejnou rychlostí. Někdy se ondatra ponořila a zase vynořila, nepravidelně, nepředvídatelně, jakoby nahodile. Táhli jsme spolu dobrou půlhodinku. Těžké uhodnout, co měla za lubem. Podstatnou roli tu možná sehrála oboustranná náklonnost.
+_Cestou kolem světa podél řeky přidala se ke mně ondatra. Kvetly hlohy a rozrazil rezekvítek, po pampeliškách zbylo bílé chmýří na dutých lodyhách. Hrabě Colloredo-Mansfeld roku 1905 přivezl z Ameriky deset párů ondater a vypustil je u Dobříše do rybníka: – Milujte se a množte se! Od té doby do dneška dobyly ondatry Evropu, celý Sovětský svaz a pronikly až do Číny. Některým se do výbojů nechtělo, zdomácněly u nás. Plavala v řece a já jsem podél řeky kráčel kolem světa. Podél řeky nelze zabloudit. Někdy byla rychlejší a počkala na mne, někdy jsem počkal já na ni, jindy jsme se pohybovali stejnou rychlostí. Někdy se ondatra ponořila a zase vynořila, nepravidelně, nepředvídatelně, jakoby nahodile. Táhli jsme spolu dobrou půlhodinku. Těžké uhodnout, co měla za lubem. Podstatnou roli tu možná sehrála oboustranná náklonnost._
 
-„Je to vaše myš?“ zeptal se mne udivený pěší cyklista s propíchnutou duší.
+_„Je to vaše myš?“ zeptal se mne udivený pěší cyklista s propíchnutou duší._
 
-„Ano. Bydlí u nás v koupelně, vytírá podlahu, umývá umyvadlo i vanu, čistí zanesené potrubí. Za odměnu ji beru na říční procházku. Má to ráda.“
+_„Ano. Bydlí u nás v koupelně, vytírá podlahu, umývá umyvadlo i vanu, čistí zanesené potrubí. Za odměnu ji beru na říční procházku. Má to ráda.“_
 
-„Nebojíte se, že se potopí a nevyplave? Že se utopí? Že vám uteče?“
+_„Nebojíte se, že se potopí a nevyplave? Že se utopí? Že vám uteče?“_
 
-„Kde že! Kde jinde by se měla tak dobře!“
+_„Kde že! Kde jinde by se měla tak dobře!“_
 
-„Podivný úkaz,“ řekl cyklista, zavrtěl hlavou a pokračoval s kolem po boku. Po několika krocích se otočil, zavrtěl hlavou. Vrtěl jí celou cestu, přestal až doma u televize. V podvečer se ondatra opět ponořila a už nikdy se nevynořila.
+_„Podivný úkaz,“ řekl cyklista, zavrtěl hlavou a pokračoval s kolem po boku. Po několika krocích se otočil, zavrtěl hlavou. Vrtěl jí celou cestu, přestal až doma u televize. V podvečer se ondatra opět ponořila a už nikdy se nevynořila._
 
-  
-
-Myslíte, paňi, že vím něco nového? Nevím. A vědět bych měla, vždyť nového je vždycky něco, i když o tom nevíme. Že o tom nevíme, to je naše chyba. Měly jsme se zeptat. Jenže koho? Jak to, že to nikdo neví, když v Nuslích se vždycky hned všecko roznese. Tak vyjeli už konečně z těch Kuřích Vod, nebo nevy­jeli? Vysedávali tam celé dny v armě a pili alpu, představte si to, paňi, alpu francovku! Protože pivo došlo a jiné už tam nebylo, tak tu alpu pili jen tak, bez piva. A přitom mohli sednout do auta a přivézt si pár sudů něčeho lepšího, když byla armáda zrušena, a tím pádem přestal platit předpis, že v armě se smí čepovat jenom sedmička. Já už, paňi, ničemu nerozumím. Třeba už jsou na cestě… Ani ta Kotulánová v Holešovicích nic neví, a vědět by měla, když to má ten její na povel. Ta, jak jsem vám o ní říkala, jak se postarala o čtyři Balice, ta podnikatelka v podprsenkách. Ale v podprsenkách už nedělá, prý se to nevyplácí. Teď, jak je ta krize, nemají lidi na podprsenky pomyšlení, vrážejí peníze do trvalejších hodnot. Do zlata, diamantů a uměleckých předmětů. O ty umělecké předměty, paňi, nemá ta Kotulánová nouzi, dodává jí je jedna paní ze Žižkova. Žije sama, ale dochází za ní jeden starší, moc interesantní pán a s tím uměním jí pomáhá, především radou, někdy s ní zajede jedničkou až do Holešovic, když to má těžké. Toho pána zná jedna paní tady od nás z Nuslí, od které jsem se všechno dozvěděla u vozíčků v Bille. Tak ta paní, paňi, ze Žižkova se jmenuje Božena Navrátilová, nejspíš vdova nebo rozvedená. Nějaké peníze jí chodí poštou, ale moc toho nebude a kdoví odkud. Jinak by se nedávala na umění pro tu Kotulánovou, protože moc pěkně vyšívá, říkala, paňi, ta paní. Jeden steh jako druhý a umělecky. Začínala svérázem na ubrusy, ten pán, co za ní chodí na Žižkov na návštěvu, se jmenuje Blahoslav Blažejovský, velký sokol, po převratě vytáhl z truhly kroj z naftalínu a teď vždycky postává v čamaře, s pérem na čepici v pozoru u pomníků hned vedle pana prezidenta, když se kladou věnce na památku obětem. Tak ten, co bývá vidět v televizi po pravé straně, trochu shrbený, s bílým knírem a v holínkách, tak to je on. Tak s tím svérázem už to nešlo na odbyt, ani Japonci už ho nechtěli, svéráz na ubruse, to moc umělecky nevypadá, když je ta krize, a tak jí ten sokol Blahoslav Blažejovský poradil, ať vyšívá Monu Lízu, co se potutelně usmívá, od Mistra Lenarda da Viče, jak je o něm taková knížka od toho, honem, jaksemenuje, mám to na jazyku, no to je jedno. A taky toho s těma ušima odstávajícíma, France Kavku, spisovatele, protože je zdejší světoznámý rodák a jde dobře na odbyt, protože ho znají i Němci a Taliáni, protože psal německy a skončil myslím v koncentráku, chudák, protože byl Žid, i když nepsal židovsky, ale myslím německy. Tak toho taky, má ho vyšitého jako živého. A ten Blažejovský jí to pomáhá vozit do tržnice, protože, paňi, umění není nic lehkého. Taky má dvě dcery provdané za jednoho šejka, představte si, paňi, obě dvě mají stejného manžela, a to nejsou samy, má jich prý ten jejich ještě dva tucty manželek. Ale proč vám to, paňi, celé vykládám: Ona má ta paní Boženka ze Žižkova ještě syna, Oldřich se jmenuje, pěkný mládenec, slušný, vždycky hezky pozdraví a boty mívá vyleštěné. Tak ten si namluvil nějakou Annu Dušičkovou, studuje na učitelku, ale je to pěkná potvora, to byste, paňi, do ní neřekla, taková útlá blondýnečka a má prý poměr s celým horolezeckým oddílem ve Vrátné dolině kdesi na Slovensku. Chudák kluk se z toho skoro pomátl a dal se kvůli ní na vojnu. A jsem u toho, proč vám to, paňi, celé vykládám. Dal se na vojnu k tomu Kotulánovi, co ta jeho žena se postarala o Weinbergerovy holky a co prodává umění od té paní Boženky Navrátilové ze Žižkova v holešovické tržnici, jak je tam s ním ten profesor Weinberger od nás z Nuslí i ten konceptualista Pytlíček taky z Nuslí, jak vyhlásili válku Sovětskému svazu a teď na něj táhnou, a my nevíme, jestli už se hnuli z Kuřích Vod, nebo nehnuli. Jak je ten svět, paňi, malý! A tak mě napadlo, že by to ta umělkyně, co vyšívá obrazy a má tam syna, ta paní Boženka Navrátilová, mohla vědět, když tam toho syna má, z první ruky. A tak jsem se za ní vydala na Žižkov, ale nebyla doma. Jestli ona nebyla u toho Blažejovského, ani bych se nedivila. Blahoslav se jmenuje křestním jménem.
+> Myslíte, paňi, že vím něco nového? Nevím. A vědět bych měla, vždyť nového je vždycky něco, i když o tom nevíme. Že o tom nevíme, to je naše chyba. Měly jsme se zeptat. Jenže koho? Jak to, že to nikdo neví, když v Nuslích se vždycky hned všecko roznese. Tak vyjeli už konečně z těch Kuřích Vod, nebo nevy­jeli? Vysedávali tam celé dny v armě a pili alpu, představte si to, paňi, alpu francovku! Protože pivo došlo a jiné už tam nebylo, tak tu alpu pili jen tak, bez piva. A přitom mohli sednout do auta a přivézt si pár sudů něčeho lepšího, když byla armáda zrušena, a tím pádem přestal platit předpis, že v armě se smí čepovat jenom sedmička. Já už, paňi, ničemu nerozumím. Třeba už jsou na cestě… Ani ta Kotulánová v Holešovicích nic neví, a vědět by měla, když to má ten její na povel. Ta, jak jsem vám o ní říkala, jak se postarala o čtyři Balice, ta podnikatelka v podprsenkách. Ale v podprsenkách už nedělá, prý se to nevyplácí. Teď, jak je ta krize, nemají lidi na podprsenky pomyšlení, vrážejí peníze do trvalejších hodnot. Do zlata, diamantů a uměleckých předmětů. O ty umělecké předměty, paňi, nemá ta Kotulánová nouzi, dodává jí je jedna paní ze Žižkova. Žije sama, ale dochází za ní jeden starší, moc interesantní pán a s tím uměním jí pomáhá, především radou, někdy s ní zajede jedničkou až do Holešovic, když to má těžké. Toho pána zná jedna paní tady od nás z Nuslí, od které jsem se všechno dozvěděla u vozíčků v Bille. Tak ta paní, paňi, ze Žižkova se jmenuje Božena Navrátilová, nejspíš vdova nebo rozvedená. Nějaké peníze jí chodí poštou, ale moc toho nebude a kdoví odkud. Jinak by se nedávala na umění pro tu Kotulánovou, protože moc pěkně vyšívá, říkala, paňi, ta paní. Jeden steh jako druhý a umělecky. Začínala svérázem na ubrusy, ten pán, co za ní chodí na Žižkov na návštěvu, se jmenuje Blahoslav Blažejovský, velký sokol, po převratě vytáhl z truhly kroj z naftalínu a teď vždycky postává v čamaře, s pérem na čepici v pozoru u pomníků hned vedle pana prezidenta, když se kladou věnce na památku obětem. Tak ten, co bývá vidět v televizi po pravé straně, trochu shrbený, s bílým knírem a v holínkách, tak to je on. Tak s tím svérázem už to nešlo na odbyt, ani Japonci už ho nechtěli, svéráz na ubruse, to moc umělecky nevypadá, když je ta krize, a tak jí ten sokol Blahoslav Blažejovský poradil, ať vyšívá Monu Lízu, co se potutelně usmívá, od Mistra Lenarda da Viče, jak je o něm taková knížka od toho, honem, jaksemenuje, mám to na jazyku, no to je jedno. A taky toho s těma ušima odstávajícíma, France Kavku, spisovatele, protože je zdejší světoznámý rodák a jde dobře na odbyt, protože ho znají i Němci a Taliáni, protože psal německy a skončil myslím v koncentráku, chudák, protože byl Žid, i když nepsal židovsky, ale myslím německy. Tak toho taky, má ho vyšitého jako živého. A ten Blažejovský jí to pomáhá vozit do tržnice, protože, paňi, umění není nic lehkého. Taky má dvě dcery provdané za jednoho šejka, představte si, paňi, obě dvě mají stejného manžela, a to nejsou samy, má jich prý ten jejich ještě dva tucty manželek. Ale proč vám to, paňi, celé vykládám: Ona má ta paní Boženka ze Žižkova ještě syna, Oldřich se jmenuje, pěkný mládenec, slušný, vždycky hezky pozdraví a boty mívá vyleštěné. Tak ten si namluvil nějakou Annu Dušičkovou, studuje na učitelku, ale je to pěkná potvora, to byste, paňi, do ní neřekla, taková útlá blondýnečka a má prý poměr s celým horolezeckým oddílem ve Vrátné dolině kdesi na Slovensku. Chudák kluk se z toho skoro pomátl a dal se kvůli ní na vojnu. A jsem u toho, proč vám to, paňi, celé vykládám. Dal se na vojnu k tomu Kotulánovi, co ta jeho žena se postarala o Weinbergerovy holky a co prodává umění od té paní Boženky Navrátilové ze Žižkova v holešovické tržnici, jak je tam s ním ten profesor Weinberger od nás z Nuslí i ten konceptualista Pytlíček taky z Nuslí, jak vyhlásili válku Sovětskému svazu a teď na něj táhnou, a my nevíme, jestli už se hnuli z Kuřích Vod, nebo nehnuli. Jak je ten svět, paňi, malý! A tak mě napadlo, že by to ta umělkyně, co vyšívá obrazy a má tam syna, ta paní Boženka Navrátilová, mohla vědět, když tam toho syna má, z první ruky. A tak jsem se za ní vydala na Žižkov, ale nebyla doma. Jestli ona nebyla u toho Blažejovského, ani bych se nedivila. Blahoslav se jmenuje křestním jménem.
 
 Už dlouho tu nebyla zmínka o Peckově jámě, jako bychom na ni zapomněli. Jako by ji Pecka nechal v Kuřích Vodách a vydal se na Sovětský svaz bez ní. Byla by to pošetilost. – Když se o něčem nemluví, jako by to nebylo. Jenže ono to je. A čeká na svůj okamžik. Jakmile příhodný okamžik nastane, vyjukne to a všichni se budeme divit. Se svou jámou si Pecka může dělat, co chce. Melodie Podpolanská už z ní vylezla, už nemá zapotřebí bydlet v jámě. Vždyť se táhne na Sovětský svaz!
 
@@ -106,22 +102,20 @@ Všichni se zaradovali. Povstali ze země a posadili se ke stolům. Konceptuali
 
 Bojovníci obojího vojska srazili stoly a dali si Smädného mnícha, v boji vyprahne. Krčmář postavil na stůl pět litrovek načerno vypále­né hruškovice a tak byla uzavřena mírová dohoda mezi armá­dou plukovníka Kotulána a priekopskými chalany.
 
-_Priekopa u Hrušky, úterý_
+> _Priekopa u Hrušky, úterý_
 
-Milá Aničko Dušičko!
+> _Milá Aničko Dušičko!_
 
-Vím, že mě to nesmí mrzet, i když mě to rmoutí, ale Ty za to nemůžeš, že jsem se nedočkal Tvé odpovědi na dopis, vždyť jsem ji ani nečekal. Jak bys mi mohla psát, když nevíš, kde jsem, když jsme v pohybu, když jsme už vytáhli z Kuřích Vod a míříme na východ, na východ, na východ… Je to velká škoda, ale musíme se smířit s tím, že nemám adresu, na kterou bys mi mohla napsat, a že ji asi sotvakdy budu mít, protože se pohybujeme a já nevím, jestli budeme už zítra v Užhorodu nebo kde vlastně, protože nemáme pevný plán ani žádný rozvrh hodin, protože jsme ve válce. Myslím, že ani náš velitel plk. K. neví, kam se zítra vrtneme, nemluvě o pozítří.
+> _Vím, že mě to nesmí mrzet, i když mě to rmoutí, ale Ty za to nemůžeš, že jsem se nedočkal Tvé odpovědi na dopis, vždyť jsem ji ani nečekal. Jak bys mi mohla psát, když nevíš, kde jsem, když jsme v pohybu, když jsme už vytáhli z Kuřích Vod a míříme na východ, na východ, na východ… Je to velká škoda, ale musíme se smířit s tím, že nemám adresu, na kterou bys mi mohla napsat, a že ji asi sotvakdy budu mít, protože se pohybujeme a já nevím, jestli budeme už zítra v Užhorodu nebo kde vlastně, protože nemáme pevný plán ani žádný rozvrh hodin, protože jsme ve válce. Myslím, že ani náš velitel plk. K. neví, kam se zítra vrtneme, nemluvě o pozítří._
 
-Nejprve musíme najít, co hledáme, a nevíme, kde se to schovává a jestli na jednom místě, nebo co vlastně. Včera jsme vybojovali první velkou bitvu v obci Priekopa u Hrušky, na hranici, a myslím, že jsme ji neprohráli. Bolí mě hlava a monokl mám na levém oku. Taky levá hýždě není v pořádku, musím sedět na pravé, ale nemysli, že si naříkám. Ostatní spolubojovníci nedopadli lépe. Zítra bychom mohli překročit hranici schengenského prostoru, a to by mohlo přituhnout.
+> _Nejprve musíme najít, co hledáme, a nevíme, kde se to schovává a jestli na jednom místě, nebo co vlastně. Včera jsme vybojovali první velkou bitvu v obci Priekopa u Hrušky, na hranici, a myslím, že jsme ji neprohráli. Bolí mě hlava a monokl mám na levém oku. Taky levá hýždě není v pořádku, musím sedět na pravé, ale nemysli, že si naříkám. Ostatní spolubojovníci nedopadli lépe. Zítra bychom mohli překročit hranici schengenského prostoru, a to by mohlo přituhnout._
 
-Píšu Ti, Aničko, znaven bojem, ale veselé mysli, v komůrce nad lokálem krčmy a vůbec se nenechám rušit burácivým zpěvem vítězů, kteří ve výčepu pijou místní hruškovici, tuze silnou.
+> _Píšu Ti, Aničko, znaven bojem, ale veselé mysli, v komůrce nad lokálem krčmy a vůbec se nenechám rušit burácivým zpěvem vítězů, kteří ve výčepu pijou místní hruškovici, tuze silnou._
 
-Je mi po Tobě smutno, ale co se dá dělat. Jak rád bych s Tebou trhal devatero kvítí a naslouchal cvrčkům a skřivánkům na prosluněné louce u nás doma.
+> _Je mi po Tobě smutno, ale co se dá dělat. Jak rád bych s Tebou trhal devatero kvítí a naslouchal cvrčkům a skřivánkům na prosluněné louce u nás doma._
 
-_Líbá Tě Tvůj milující  
-Oldřich_
-
-  
+> _Líbá Tě Tvůj milující  
+> Oldřich_
 
 Kam se poděla Melodie Podpolanská, věděl jenom Longin Pecka. Kam se však poděl místní hrobník? On jediný z krčmy zmizel, jenom lopata tu po něm zůstala. Oba tábory popíjely hruškovici pospolu. Plukovník Kotulán povstal, zacinkal na sklenici, aby zjednal klid.
 
@@ -185,15 +179,13 @@ Netrvalo ani dvě štamprle a všichni chalani z Priekopy se přihlásili do a
 
 „Tak zítra v deset, chalani, přesně, na žádného se nečeká!“
 
-Ve chvílích bezradnosti, když nevím kudy kam, když se předčasně probudím a chvátám studenou nocí, ťapkám bosý po vychladlé podlaze, abych zabránil inkontinenci, propadám panice. Naštěstí se mi pokaždé podařilo zabránit nejhoršímu. Mohou se přihodit i horší věci. Vracím se zčásti uklidněn, jenže bezradnost se nedá vymočit. Vracím se do tepla, a přesto nevím kudy kam. Vím jen, že úkryt pod dekou není řešení, že budu muset zas, ještě za tmy vyklouznout z pelíšku a pokračovat v cestě.
+_Ve chvílích bezradnosti, když nevím kudy kam, když se předčasně probudím a chvátám studenou nocí, ťapkám bosý po vychladlé podlaze, abych zabránil inkontinenci, propadám panice. Naštěstí se mi pokaždé podařilo zabránit nejhoršímu. Mohou se přihodit i horší věci. Vracím se zčásti uklidněn, jenže bezradnost se nedá vymočit. Vracím se do tepla, a přesto nevím kudy kam. Vím jen, že úkryt pod dekou není řešení, že budu muset zas, ještě za tmy vyklouznout z pelíšku a pokračovat v cestě._
 
-Měl bych se nalodit, na cestě kolem světa se moři nevyhnu. Ledaže bych to vzdal, vždyť mě nikdo nenutí, nikdo to po mně nechce. Ale já to nevzdám. Kdybych se z toho vyvlékl, co by pak ze mne zbylo? Cesta kolem světa by ztratila smysl. Já bych neměl smysl. Přece si nenechám uplavat loď, už houká v přístavu.
+_Měl bych se nalodit, na cestě kolem světa se moři nevyhnu. Ledaže bych to vzdal, vždyť mě nikdo nenutí, nikdo to po mně nechce. Ale já to nevzdám. Kdybych se z toho vyvlékl, co by pak ze mne zbylo? Cesta kolem světa by ztratila smysl. Já bych neměl smysl. Přece si nenechám uplavat loď, už houká v přístavu._
 
-Stojím rozkročený na rozhoupané palubě, jsem Kryštof Kolumbus a nevím, kdy už bude ta Indie… Krčím se v teplé jeskyňce pod peřinou jak plšík v prázdné makovici a nevím, jak to dopadne.
+_Stojím rozkročený na rozhoupané palubě, jsem Kryštof Kolumbus a nevím, kdy už bude ta Indie… Krčím se v teplé jeskyňce pod peřinou jak plšík v prázdné makovici a nevím, jak to dopadne._
 
-  
-
-Poslouchejte, paňi, co jsem se dozvěděla od jedné paní ve frontě na kupon městské hromadné dopravy. Teď se to zapisuje rovnou do takové červené karty, co ji má mít každý, ale nic v ní není vidět, jenom ten kontrolor má takovou jako čtečku, a když vás nachytá, že to tam nemáte, tak vám dá pokutu, ale vy nevíte, jestli to tam máte, nebo nemáte, když zapomenete a nemůžete si to přečíst, protože vy tu čtečku nemáte. Tak prý už vyjeli, jenže ta paní, paňi, nevěděla, kterým směrem. Já bych řekla, že na východ. To dá zdravý rozum přece, když táhnou do boje se Sovětským svazem, nepotáhnou na západ nebo na jih jako ty vlaštovky. Já nejsem žádná drbna, jak by si někdo mohl myslet. Mě zajímají lidi, kteří mají nějakou souvislost s Nuslemi, ani se tu nemuseli narodit, jako třeba ty čtyři slečny z Bali, vždyť tu pobývaly s profesorem Weinbergerem V Horkách nejmíň dva roky a to je tak akorát, aby Nuslemi načichly, aby se do nich Nusle obtiskly a už v nich natrvalo zůstaly. Nic bych za to nedala, že tu mají pořád ještě trvalé bydliště, i když jsou trvale v Holešovicích, v tom jejich St. Pauli hned naproti přístavu. Vypadají moc dobře, akorát že já mezi nimi nedokážu rozlišit, která je která, jako by byly z jednoho vrhu. Občas přijde některá do V Horkách zalít kytky. Moc fajnové mladé dámy to jsou, jen aby je nepotkalo něco špatného, aby vtom St. Pauli nenatrefily na nějakého gaunera nebo aby nechytly nějakou nemoc. Ale ona už si to ta podnikatelka Kotulánová ohlídá, je to tuze energická dáma, žádné ořezávátko, jak se říká. Ale co jsem to chtěla, paňi, ano, o tom Pytlíčkovi, jak je s tím Weinbergerem u toho Kotulána, jak teď táhnou na Sovětský svaz, tak ten je pravý Nuselák křtěný Botičem. Jeho dědeček, ne, pradědeček to byl, bojoval za císaře pána, nejdřív v Rusku a potom na Piavě, co jich tam padlo… Kdyby se dal k legiím, mohl dostat od Masaryka trafiku. Ale oni se nejmenovali Pytlíčkovi, kdežepak by se někdo takhle jmenoval, to až ten nejmladší, ale i ten je po správnosti Vorel, ten konceptualista, aby byl něco extra, aby se lišil, když dělá ty koncepty a číhá na lidi pod Nuselským mostem. Taková nóbl rodina! Ten od Piavy, pradědeček, byl krupař Vorel, moc mu to nešlo, hodně prokouřil v pěnovce, a taky, krupařství na Malé Straně! Když se zavedl v Nuslích a pěnovku přerazil o kandelábr, hned se postavil na nohy a prodával kroupy ve velkém. Tak ten měl syna Josefa, Pytlíčkova dědečka. Toho Vorla, však víte, paňi. Utekl od krupařství k divadlu, nejdřív kočoval a pak to dotáhl až do Národního. A ještě dál, až do kina, ale to už, paňi, víte, každý zná Josefa Vorla, národního umělce a nositele Řádu práce, s baňatým nosem od kořalky, tak to je Pytlíčkův dědeček. Místo aby se takovým jménem pyšnil, kdepak, to je z něho radši Pytlíček. A syn toho národního nositele Jan Vorel, Pytlíčkův otec, ten nechal studií na technice a pustil se do básniček. Pak začal šťourat do režimu, a když přišli Rusáci, tak měl po básničkách, jenže on šťourat nepřestal, tak ho dali do kotelny v hotelu Mira ve Vlastislavově ulici, tam si mohl psát ty svoje básničky a házet je rovnou do kotle. Nakonec ho stejně zavřeli. Však z něj hned po převratu byl poslanec. Ale ne dlouho, jenom jednou, než tam udělali v parlamentu pořádek. Teď je v penzi na Libeňském ostrově, má tam zahrádku s chatičkou, dělá rybízové víno a rýpe se v záhonech. A co mu, paňi, chybí? Jenom ten kluk… Než by mu poryl záhon a byl pyšný na svoji rodinu, dá si jméno Pytlíček! A zmizí kdesi, kdoví kde! Táhne si s Kotulánem do války a nikdo neví, kam dotáhli a kam dotáhnou, a jestli se vůbec vrátí, a když se vrátí, jestli mu nebude chybět nějaký ten úd. Ani Kotulánová nic neví, šikovně jsem se jí vyptávala, ale copak se z ní dá něco vytáhnout? Já mám takový dojem, paňi, že tu Kotulánovou ten Kotulán přestal úplně zajímat, že si hledí jenom těch svých kšeftů. Ona má v hlavě jiné věci, ta žádného Kotulána nepotřebuje. – Tak já nevím, paňi, jak to všechno zjistit. Ale já to zjistím, paňi, na to vemte jed.
+> Poslouchejte, paňi, co jsem se dozvěděla od jedné paní ve frontě na kupon městské hromadné dopravy. Teď se to zapisuje rovnou do takové červené karty, co ji má mít každý, ale nic v ní není vidět, jenom ten kontrolor má takovou jako čtečku, a když vás nachytá, že to tam nemáte, tak vám dá pokutu, ale vy nevíte, jestli to tam máte, nebo nemáte, když zapomenete a nemůžete si to přečíst, protože vy tu čtečku nemáte. Tak prý už vyjeli, jenže ta paní, paňi, nevěděla, kterým směrem. Já bych řekla, že na východ. To dá zdravý rozum přece, když táhnou do boje se Sovětským svazem, nepotáhnou na západ nebo na jih jako ty vlaštovky. Já nejsem žádná drbna, jak by si někdo mohl myslet. Mě zajímají lidi, kteří mají nějakou souvislost s Nuslemi, ani se tu nemuseli narodit, jako třeba ty čtyři slečny z Bali, vždyť tu pobývaly s profesorem Weinbergerem V Horkách nejmíň dva roky a to je tak akorát, aby Nuslemi načichly, aby se do nich Nusle obtiskly a už v nich natrvalo zůstaly. Nic bych za to nedala, že tu mají pořád ještě trvalé bydliště, i když jsou trvale v Holešovicích, v tom jejich St. Pauli hned naproti přístavu. Vypadají moc dobře, akorát že já mezi nimi nedokážu rozlišit, která je která, jako by byly z jednoho vrhu. Občas přijde některá do V Horkách zalít kytky. Moc fajnové mladé dámy to jsou, jen aby je nepotkalo něco špatného, aby vtom St. Pauli nenatrefily na nějakého gaunera nebo aby nechytly nějakou nemoc. Ale ona už si to ta podnikatelka Kotulánová ohlídá, je to tuze energická dáma, žádné ořezávátko, jak se říká. Ale co jsem to chtěla, paňi, ano, o tom Pytlíčkovi, jak je s tím Weinbergerem u toho Kotulána, jak teď táhnou na Sovětský svaz, tak ten je pravý Nuselák křtěný Botičem. Jeho dědeček, ne, pradědeček to byl, bojoval za císaře pána, nejdřív v Rusku a potom na Piavě, co jich tam padlo… Kdyby se dal k legiím, mohl dostat od Masaryka trafiku. Ale oni se nejmenovali Pytlíčkovi, kdežepak by se někdo takhle jmenoval, to až ten nejmladší, ale i ten je po správnosti Vorel, ten konceptualista, aby byl něco extra, aby se lišil, když dělá ty koncepty a číhá na lidi pod Nuselským mostem. Taková nóbl rodina! Ten od Piavy, pradědeček, byl krupař Vorel, moc mu to nešlo, hodně prokouřil v pěnovce, a taky, krupařství na Malé Straně! Když se zavedl v Nuslích a pěnovku přerazil o kandelábr, hned se postavil na nohy a prodával kroupy ve velkém. Tak ten měl syna Josefa, Pytlíčkova dědečka. Toho Vorla, však víte, paňi. Utekl od krupařství k divadlu, nejdřív kočoval a pak to dotáhl až do Národního. A ještě dál, až do kina, ale to už, paňi, víte, každý zná Josefa Vorla, národního umělce a nositele Řádu práce, s baňatým nosem od kořalky, tak to je Pytlíčkův dědeček. Místo aby se takovým jménem pyšnil, kdepak, to je z něho radši Pytlíček. A syn toho národního nositele Jan Vorel, Pytlíčkův otec, ten nechal studií na technice a pustil se do básniček. Pak začal šťourat do režimu, a když přišli Rusáci, tak měl po básničkách, jenže on šťourat nepřestal, tak ho dali do kotelny v hotelu Mira ve Vlastislavově ulici, tam si mohl psát ty svoje básničky a házet je rovnou do kotle. Nakonec ho stejně zavřeli. Však z něj hned po převratu byl poslanec. Ale ne dlouho, jenom jednou, než tam udělali v parlamentu pořádek. Teď je v penzi na Libeňském ostrově, má tam zahrádku s chatičkou, dělá rybízové víno a rýpe se v záhonech. A co mu, paňi, chybí? Jenom ten kluk… Než by mu poryl záhon a byl pyšný na svoji rodinu, dá si jméno Pytlíček! A zmizí kdesi, kdoví kde! Táhne si s Kotulánem do války a nikdo neví, kam dotáhli a kam dotáhnou, a jestli se vůbec vrátí, a když se vrátí, jestli mu nebude chybět nějaký ten úd. Ani Kotulánová nic neví, šikovně jsem se jí vyptávala, ale copak se z ní dá něco vytáhnout? Já mám takový dojem, paňi, že tu Kotulánovou ten Kotulán přestal úplně zajímat, že si hledí jenom těch svých kšeftů. Ona má v hlavě jiné věci, ta žádného Kotulána nepotřebuje. – Tak já nevím, paňi, jak to všechno zjistit. Ale já to zjistím, paňi, na to vemte jed.
 
 V devět hodin dopoledne usedlo osm mužů včetně plukovníka Kotulána ke stolu v priekopské krčmě. Čekali na klobásky, než vyrazí na další cestu.
 
@@ -241,21 +233,19 @@ Za pět minut dvanáct se v krčmě zjevil parobek v čepici obrácené kšilt
 
 „Už to tak vypadá,“ potvrdil velitel. „Krčmáři, platím!“
 
-Obloha byla šedá, olověná mračna. Nezbylo než se vykulit z prázdné makovice, najít ukrytou branku, strčit do ní… a jsem na palubě. Nic jiného než loď mi nezbývá. Jenže jakápak je to loď? Ocitl jsem se na prámu stlučeném z trosek slavné fregaty Medúzy. Jsem tu sám, všichni, co zbyli, jsou už pryč. Je tu jen Oldřich Navrátil, cestovatel po Zemi, objevitel dávno objeveného.
+_Obloha byla šedá, olověná mračna. Nezbylo než se vykulit z prázdné makovice, najít ukrytou branku, strčit do ní… a jsem na palubě. Nic jiného než loď mi nezbývá. Jenže jakápak je to loď? Ocitl jsem se na prámu stlučeném z trosek slavné fregaty Medúzy. Jsem tu sám, všichni, co zbyli, jsou už pryč. Je tu jen Oldřich Navrátil, cestovatel po Zemi, objevitel dávno objeveného._
 
-Plujeme-li kolem světa na prámu, nemusíme nikam chodit, prám tam s námi dopluje, pluje-li. Jenže prám z Medúzy je neovladatelný. Veslaři ve člunu, který ho měl vléci, přeťali lano a odveslovali do hospody, vyhládlé a žíznivé trosečníky nechali na holičkách. Prám si pluje, kam chce, kam ho mořské proudy vlečou…
+_Plujeme-li kolem světa na prámu, nemusíme nikam chodit, prám tam s námi dopluje, pluje-li. Jenže prám z Medúzy je neovladatelný. Veslaři ve člunu, který ho měl vléci, přeťali lano a odveslovali do hospody, vyhládlé a žíznivé trosečníky nechali na holičkách. Prám si pluje, kam chce, kam ho mořské proudy vlečou…_
 
-Nad ránem přiletěl kormorán, dřepl si ke mně.
+_Nad ránem přiletěl kormorán, dřepl si ke mně._
 
-„Tebe znám,“ řekl kormorán a tvářil se pobaveně, „ty jsi ten dědek, co ho nesetřásli, když setřásali dědky. Bloumáš podél řeky kolem světa. Kde se tu bereš?“
+_„Tebe znám,“ řekl kormorán a tvářil se pobaveně, „ty jsi ten dědek, co ho nesetřásli, když setřásali dědky. Bloumáš podél řeky kolem světa. Kde se tu bereš?“_
 
-„Na cestě kolem světa se moři nevyhnu.“
+_„Na cestě kolem světa se moři nevyhnu.“_
 
-„Nechápu,“ zakroutil ptačí hlavou, zamával křídly nejdřív naprázdno, nadělal kolem sebe vítr, pak se vznesl. Letěl vzhůru, a když prorazil mračna, začal padat olověný déšť.
+_„Nechápu,“ zakroutil ptačí hlavou, zamával křídly nejdřív naprázdno, nadělal kolem sebe vítr, pak se vznesl. Letěl vzhůru, a když prorazil mračna, začal padat olověný déšť._
 
 ## 2
-
-  
 
 Jeli cestou necestou ve svahu porostlém bukovým lesem, hluboko pod nimi se blyštěl potok. Poskakoval přes kameny obrostlé mechem i přes kameny holé, omšelé, schovával se pod kapradí doširoka rozprostřené a znovu zpod něj vyjukával, vytvářel poklidné tůňky, ale hned se zas vrhal po hlavě do propasti a čepýřil se bílou pěnou. Při vší rozmařilosti ani na chvilku nezapomněl na svůj úkol tvořit státní hranici. Bývala to hranice s „říší zla“, jak nazval Sovětský svaz trefně pan prezident Reagan.
 
@@ -295,15 +285,15 @@ Asi po hodině se otevřely dveře a k vojákům do díry šoupli chudinku Mel
 
 „Ten syčák by chtěl všecko a zadarmo! Hovado prolhané. Dělala jsem, co jsem mohla, ale co jsem nemohla, udělat nešlo. Myslím, že jsme tu válku se Sovětským svazem prohráli.“
 
-Břehy africké… To jsem si nadělil pěknou nadílku! Klukovské romantiky se ani stařík ze stromu setřesený nedokáže zříct. Proč jsem, k čertu, lezl na ten prám! Kdo mi to nakukal? Uprostřed vodstva na neovladatelném prámu předurčen ke ztroskotání. Zmítám se ve vlnách dosud příznivých. Co si počnu, až se zvednou? Bez špetky znalostí navigace a mořských proudů, nevěda nic o větrech a rozmístění hvězd hodlám se plavit ke vzdáleným břehům. Rozhodl jsem se pro cestu kolem světa, jako by to bylo moje poslání. Přitom je to jen vrtoch pošetilého staříka.
+_Břehy africké… To jsem si nadělil pěknou nadílku! Klukovské romantiky se ani stařík ze stromu setřesený nedokáže zříct. Proč jsem, k čertu, lezl na ten prám! Kdo mi to nakukal? Uprostřed vodstva na neovladatelném prámu předurčen ke ztroskotání. Zmítám se ve vlnách dosud příznivých. Co si počnu, až se zvednou? Bez špetky znalostí navigace a mořských proudů, nevěda nic o větrech a rozmístění hvězd hodlám se plavit ke vzdáleným břehům. Rozhodl jsem se pro cestu kolem světa, jako by to bylo moje poslání. Přitom je to jen vrtoch pošetilého staříka._
 
-Jsem tu sám. Sám, sám, sám. Už jsem se zabydlil. Člověk si zvykne i na šibenici a mne nikdo za krk nevěší. Co má shořet, neshnije. Kam pohlédnu, všude obzor a nic na obzoru. Houpy, hou, houpy, hou… Jsou tu jenom trámy, někdy vlnami zvlhlé, jindy sluncem doběla vysušené. Voda slaná, samá voda, voda voda, nic než voda. Vzduch je zdravý, mořský, žádné mikroby v něm nepoletují, ani prach, ani kouř. Hlava prázdná, co bylo, bylo, to už není. Svět se scvrkl na pár kusů dřeva, spousty vod a nebe nad hlavou. Jsem tu sám.
+_Jsem tu sám. Sám, sám, sám. Už jsem se zabydlil. Člověk si zvykne i na šibenici a mne nikdo za krk nevěší. Co má shořet, neshnije. Kam pohlédnu, všude obzor a nic na obzoru. Houpy, hou, houpy, hou… Jsou tu jenom trámy, někdy vlnami zvlhlé, jindy sluncem doběla vysušené. Voda slaná, samá voda, voda voda, nic než voda. Vzduch je zdravý, mořský, žádné mikroby v něm nepoletují, ani prach, ani kouř. Hlava prázdná, co bylo, bylo, to už není. Svět se scvrkl na pár kusů dřeva, spousty vod a nebe nad hlavou. Jsem tu sám._
 
-Můj známý kormorán se už nevrátil. Rozpažil křídla, aby se usušil, a když se usušil, vzlétl jako šipka po kolmici, odletěl na strom u řeky, do kolonie nepatřičných ptáků; když je jich hodně, líp se jim hřaduje.
+_Můj známý kormorán se už nevrátil. Rozpažil křídla, aby se usušil, a když se usušil, vzlétl jako šipka po kolmici, odletěl na strom u řeky, do kolonie nepatřičných ptáků; když je jich hodně, líp se jim hřaduje._
 
-Břehy africké ne a ne vynořit se zpoza obzoru. Jenom je tuším, slyším řev lvů a vřeštění paviánů. Jsem tu sám na vratkém prámu po Medúze, oči se mi klíží, ulehám na záda s rukama pod hlavou a hledím do cizího nebe, hlubokého, s hvězdami. Na každé z nich je ztroskotaný trosečník, leží na zádech s rukama za hlavou a hledí do nebe, hlubokého, cizího, plného hvězd.
+_Břehy africké ne a ne vynořit se zpoza obzoru. Jenom je tuším, slyším řev lvů a vřeštění paviánů. Jsem tu sám na vratkém prámu po Medúze, oči se mi klíží, ulehám na záda s rukama pod hlavou a hledím do cizího nebe, hlubokého, s hvězdami. Na každé z nich je ztroskotaný trosečník, leží na zádech s rukama za hlavou a hledí do nebe, hlubokého, cizího, plného hvězd._
 
-Už nejsem sám, jsou nás myriády myriád a vůbec nic si nemusíme říkat.
+_Už nejsem sám, jsou nás myriády myriád a vůbec nic si nemusíme říkat._
 
 Čertví podle jakého klíče tahali pohraničníci Kotulánova vojska z ťurmy k výslechu. První byl vytažen Pytlíček. Zavázali mu oči nevypranou onucí a vedli ho zimou i teplem, vůní střemchy i smradem latrín, trávníkem i dunivými chodbami, odemykáním a zamykáním zámků, až ho přivedli do místnosti plné páry. Ocitl se v klenutém sklepení s velkou dřevěnou kádí plnou vody a v té kádi vězel komandýr pohraničníků. – Ještě by mi měli dát přes hubu, nakopat do ledvin, pošlapat břicho a zpřerážet žebra, pomyslel si Pytlíček.
 
@@ -337,9 +327,7 @@ Pytlíček by se rád přiznal, už to bylo v kádi nepříjemné, voda kvapem 
 
 Ihnat Žvaňka zakroutil hlavou a otevřel dokořán hubu. Mezi dokonalými řadami zubů mu chybělo cosi podstatného. Od Ihnata Žvaňky se nikdy nikdo nic nedoví. Proto mu říkali Žvaňka. Leda že by to napsal. Otázkou je, umí-li psát. Voda v kádi už byla notně studená.
 
-  
-
-Už jste o tom, paňi, slyšela? V novinách ani řádka, v Blesku ani v televizi, na Nově ani na Primě. Nic. Jenže já to vím ze spolehlivých zdrojů a neptejte se mě, paňi, z jakých. Ti blázni už to doopravdy přehnali. No ti, jak je vede ten od té, co se tak pěkně postarala o ty čtyři chudinky, jak je sem přivlekl profesor Weinberger z Bali a pak odešel za Kotulánem, to je manžel od podnikatelky Kotulánové, ta se o ně postarala v St. Pauli u přístavu, jak jsem vám o nich vyprávěla… Ty holky jenom kvetou, pejska si pořídily, mají ho dohromady, takového malinkého se sponkou ve vlasech, chodí ho věnčit na střídačku pod smuteční vrbu, tam se to smí, a hovínka pěkně do sáčku, jak se to má, jenom jedna občas zapomene, když si myslí, že se nikdo nedívá. Po těch Holešovicích stejně jezdí chlap na čtyřkolovém motocyklu a ta hovénka sbírá vysávací rourou. Jenže v té rychlosti malé hovénko v trávě snadno přehlédne. Ale to jsem, paňi, odbočila, to vám chci, paňi, říct. Ti Kotulánovi hastroši, jak vyhlásili válku Sovětskému svazu, tak už jsou tam. Už jsou tam, kam sahal, než se zrušil. Překročili hranici a blíží se už k Užhorodu. A co za nimi zůstává, paňi? Spoušť! Potoky krve. Vypálená města a vesnice. Pokopaní pejsci. Znásilněné ženy a dívky, berou všechno, od školky po domov důchodkyň. A nejhorší je ten, to byste, paňi, neřekla. Nejhorší z nich je Oldřich Navrátil. Tak ten. Říká si pacifista, ale je z nich nejhorší. Píše zamilovaná psaníčka študentce na učitelku Dušičkové, samé kytičky a rozkvetlé louky, a přitom loupí, na co přijde, a vraždí, kam se dá. Je tam s nimi taky ženská volných mravů a pochybné pověsti, umělkyně ve zpívání a vyhazování nohou do vzduchu, jakási Melodie, jakoby pod něčím, pod lipou nebo pod kopcem, Podlipová nebo Podhajská, přeřízne, na koho přijde, nymfomanka. Jenom ostudu nám dělají. Kdyby hráli hokej nebo fotbal, neřeknu, taky tenis by mohli, to je moc pěkný sport. I pan prezident si občas zatenisuje, když má náhodou čas, jenže náš pan prezident toho času nemá nazbyt, musí se starat o celou republiku. Neřeknu! Nebo teď je v módě, jak se moderně říká in, golf. Taky pěkný sport, na čerstvém vzduchu, ptáčci cvrlikají, větérek pofukuje. Prosím! Ale válka, paňi, kdepak! Na to já nejsem, na to by mě neužil.
+> Už jste o tom, paňi, slyšela? V novinách ani řádka, v Blesku ani v televizi, na Nově ani na Primě. Nic. Jenže já to vím ze spolehlivých zdrojů a neptejte se mě, paňi, z jakých. Ti blázni už to doopravdy přehnali. No ti, jak je vede ten od té, co se tak pěkně postarala o ty čtyři chudinky, jak je sem přivlekl profesor Weinberger z Bali a pak odešel za Kotulánem, to je manžel od podnikatelky Kotulánové, ta se o ně postarala v St. Pauli u přístavu, jak jsem vám o nich vyprávěla… Ty holky jenom kvetou, pejska si pořídily, mají ho dohromady, takového malinkého se sponkou ve vlasech, chodí ho věnčit na střídačku pod smuteční vrbu, tam se to smí, a hovínka pěkně do sáčku, jak se to má, jenom jedna občas zapomene, když si myslí, že se nikdo nedívá. Po těch Holešovicích stejně jezdí chlap na čtyřkolovém motocyklu a ta hovénka sbírá vysávací rourou. Jenže v té rychlosti malé hovénko v trávě snadno přehlédne. Ale to jsem, paňi, odbočila, to vám chci, paňi, říct. Ti Kotulánovi hastroši, jak vyhlásili válku Sovětskému svazu, tak už jsou tam. Už jsou tam, kam sahal, než se zrušil. Překročili hranici a blíží se už k Užhorodu. A co za nimi zůstává, paňi? Spoušť! Potoky krve. Vypálená města a vesnice. Pokopaní pejsci. Znásilněné ženy a dívky, berou všechno, od školky po domov důchodkyň. A nejhorší je ten, to byste, paňi, neřekla. Nejhorší z nich je Oldřich Navrátil. Tak ten. Říká si pacifista, ale je z nich nejhorší. Píše zamilovaná psaníčka študentce na učitelku Dušičkové, samé kytičky a rozkvetlé louky, a přitom loupí, na co přijde, a vraždí, kam se dá. Je tam s nimi taky ženská volných mravů a pochybné pověsti, umělkyně ve zpívání a vyhazování nohou do vzduchu, jakási Melodie, jakoby pod něčím, pod lipou nebo pod kopcem, Podlipová nebo Podhajská, přeřízne, na koho přijde, nymfomanka. Jenom ostudu nám dělají. Kdyby hráli hokej nebo fotbal, neřeknu, taky tenis by mohli, to je moc pěkný sport. I pan prezident si občas zatenisuje, když má náhodou čas, jenže náš pan prezident toho času nemá nazbyt, musí se starat o celou republiku. Neřeknu! Nebo teď je v módě, jak se moderně říká in, golf. Taky pěkný sport, na čerstvém vzduchu, ptáčci cvrlikají, větérek pofukuje. Prosím! Ale válka, paňi, kdepak! Na to já nejsem, na to by mě neužil.
 
 „Co ti ten Sovětský svaz udělal?“ zeptal se komandýr pohraničníků plukovníka v utajení Kotulána ve své komandýrské kanceláři s tvrdým kavalcem a zválenou dekou.
 
@@ -435,15 +423,13 @@ Nadrotmistr Prkénko se opět blyštěl vojenskými ozdobami. Oškubal z unifor
 
 „Nasedat!“ zavelel plukovník Kotulán a vojska se dala do pohybu.
 
-Na moře se pouštím v noci, abych měl hvězdné nebe nad hlavou a mravní zákon v sobě. Ve dne je to nemožné; ale i v noci se hvězdy na obloze zaneřáděné světly velkoměsta špatně hledají. Hvězdného nebe se nám nedostává, mravní zákon je obcházen. Proto vstupuji na prám Medúzy za tmy, se zuby vyčištěnými, přikrývku u brady. Daleko od břehů, od lidí a jejich světel, na vysokém moři mne nic neruší. Nedoléhá sem povyk racků ani svist kormoránních letek, je tu jen šplouchavé ticho oceánu.
+_Na moře se pouštím v noci, abych měl hvězdné nebe nad hlavou a mravní zákon v sobě. Ve dne je to nemožné; ale i v noci se hvězdy na obloze zaneřáděné světly velkoměsta špatně hledají. Hvězdného nebe se nám nedostává, mravní zákon je obcházen. Proto vstupuji na prám Medúzy za tmy, se zuby vyčištěnými, přikrývku u brady. Daleko od břehů, od lidí a jejich světel, na vysokém moři mne nic neruší. Nedoléhá sem povyk racků ani svist kormoránních letek, je tu jen šplouchavé ticho oceánu._
 
-V dřívějších dobách se cestovatelé nemohli rozhodnout pro cestu kolem světa. Svět nebyl kulatý, měl kdesi začátek a jinde konec. Mohli však nasednout na koně a vydat se z Čech až na konec světa. A pak zase zpátky.
+_V dřívějších dobách se cestovatelé nemohli rozhodnout pro cestu kolem světa. Svět nebyl kulatý, měl kdesi začátek a jinde konec. Mohli však nasednout na koně a vydat se z Čech až na konec světa. A pak zase zpátky._
 
-Z hlubokého nebe se mi zatočila hlava. Dech se úží, úzkost mě svírá, propadám zoufalství. A tu na mne mezi hvězdami jedna hvězdička vyjukne, modře pomrkává, kyne mi: Pojď! Pojď za mnou… Nic neslibuje, ale já tuším příslib čehosi báječného. Nořím ruce do vln a hrabu jimi jako čubička v požární jímce. Prám se dává do pohybu, směr modrá hvězda, hvězda vytoužená.
+_Z hlubokého nebe se mi zatočila hlava. Dech se úží, úzkost mě svírá, propadám zoufalství. A tu na mne mezi hvězdami jedna hvězdička vyjukne, modře pomrkává, kyne mi: Pojď! Pojď za mnou… Nic neslibuje, ale já tuším příslib čehosi báječného. Nořím ruce do vln a hrabu jimi jako čubička v požární jímce. Prám se dává do pohybu, směr modrá hvězda, hvězda vytoužená._
 
 ## 3
-
-  
 
 Toho dne urazila vojska plukovníka Kotulána jenom pár kilometrů po silničce nevalné kvality vinoucí se podél potoka hlubokým, těsným údolím mezi příkrými svahy porostlými smíšeným lesem s převahou listnáčů, plné hřibů obecných se světle hnědými hlavičkami i hřibů kolodějů s purpurovými výtrusnicemi, na řezu modrajících. Houby pohlížely svrchu na projíždějící vojska a kývaly na ně zpoza buků, lákaly tak mocně, že jim nebylo možné odolat. Velitel Kotulán přikázal stručně:
 
@@ -469,24 +455,22 @@ Kazak Kazačok si všechny zapsal do knihy hostí, ukázal místo, kde možno za
 
 Kotulán chtěl šetřit válečnou kasu a místo peněz mu nabídl hříbky. Kazak Kazačok se dal do smíchu, až se pod ním zvrátila trojnožka. Chtěl dolary, eventuálně eura. Zaplatili tedy předem a ještě mu přidali zbojnický trakař, už jim nebyl k ničemu. Kazak Kazačok dovolil Jurajdovi zatopit v polní kuchyni a uvařit houbový guláš. Nechal se taky pozvat a moc mu chutnalo. Došel si dvakrát pro nášup.
 
-_Motel Oboroh, středa_
+> _Motel Oboroh, středa_
 
-Má znejmilejší Aničko!
+> _Má znejmilejší Aničko!_
 
-Moc se omlouvám, že jsem se odmlčel na takovou dobu. Válka nepřeje zamilovaným, chvilka klidu k napsání dopisu se těžko hledá. A tak mi odpusť, moje Dušičko, že jsem Tě nechal tak dlouho čekat. V myšlenkách jsem stále s Tebou, kudy chodím, tudy na Tebe myslím. Po strastech uplynulých dní jsme se ubytovali v příjemném, vzdušném motelu Oboroh, blízko silnice. Jakmile dorazíme do Užhorodu, pošlu dopis z pošty, recepční Kazak Kazačok nemá známky ani poštovní schránku, tomu bych dopis nesvěřil, mohl by ho zašantročit.
+> _Moc se omlouvám, že jsem se odmlčel na takovou dobu. Válka nepřeje zamilovaným, chvilka klidu k napsání dopisu se těžko hledá. A tak mi odpusť, moje Dušičko, že jsem Tě nechal tak dlouho čekat. V myšlenkách jsem stále s Tebou, kudy chodím, tudy na Tebe myslím. Po strastech uplynulých dní jsme se ubytovali v příjemném, vzdušném motelu Oboroh, blízko silnice. Jakmile dorazíme do Užhorodu, pošlu dopis z pošty, recepční Kazak Kazačok nemá známky ani poštovní schránku, tomu bych dopis nesvěřil, mohl by ho zašantročit._
 
-Mám oboroh číslo 17 jenom pro sebe, je večer, seno voní a jakýsi ptáček pěkně tluče, jistě to bude slavík. Svítím si baterkou se solární baterií, abych viděl, i když je nebe plné hvězd, na psaní to nestačí. Svíčkou se svítit nesmí, oboroh by mohl vzplanout.
+> _Mám oboroh číslo 17 jenom pro sebe, je večer, seno voní a jakýsi ptáček pěkně tluče, jistě to bude slavík. Svítím si baterkou se solární baterií, abych viděl, i když je nebe plné hvězd, na psaní to nestačí. Svíčkou se svítit nesmí, oboroh by mohl vzplanout._
 
-Asi nevíš, co je to oboroh, u nás doma se dává seno do seníků. Jsou to čtyři vysoké kůly zatlučené do země a na nich došková střecha, která se dá posouvat nahoru a dolů podle potřeby. Mezi kůly je seno, suché a voňavé, a taky já tu jsem. Sedím v tom seně s papíry na kolenou a píšu Ti dopis z války.
+> _Asi nevíš, co je to oboroh, u nás doma se dává seno do seníků. Jsou to čtyři vysoké kůly zatlučené do země a na nich došková střecha, která se dá posouvat nahoru a dolů podle potřeby. Mezi kůly je seno, suché a voňavé, a taky já tu jsem. Sedím v tom seně s papíry na kolenou a píšu Ti dopis z války._
 
-Už jsem si myslel, že všechno skončilo, že se brzy vrátím. Na hranicích nás totiž zastavili celníci s pohraničníky a chtěli pasy. A protože vojáci žádné pasy nemají, těšil jsem se, že nás vrátí zpátky. Chyba. Zavřeli nás v ťurmě s koleny u brady a všechno nám ukradli, peníze i zbraně, ani jsme je nestačili vybalit. Říkal jsem si: Věčně tady nebudeme. Zavřít nás můžou, pustit musí, a my se vrátíme a já Tě budu moci, moje Dušičko, obejmout, než sníh louky zasněží. Druhá chyba. Jacísi banditi v červených kalhotách, se strašně kousavými psisky, všecky celníky a pohraničníky povraždili a nás z ťurmy vysvobodili. Táhneme tedy dál. Kdoví čeho se tu ještě dožijeme.
+> _Už jsem si myslel, že všechno skončilo, že se brzy vrátím. Na hranicích nás totiž zastavili celníci s pohraničníky a chtěli pasy. A protože vojáci žádné pasy nemají, těšil jsem se, že nás vrátí zpátky. Chyba. Zavřeli nás v ťurmě s koleny u brady a všechno nám ukradli, peníze i zbraně, ani jsme je nestačili vybalit. Říkal jsem si: Věčně tady nebudeme. Zavřít nás můžou, pustit musí, a my se vrátíme a já Tě budu moci, moje Dušičko, obejmout, než sníh louky zasněží. Druhá chyba. Jacísi banditi v červených kalhotách, se strašně kousavými psisky, všecky celníky a pohraničníky povraždili a nás z ťurmy vysvobodili. Táhneme tedy dál. Kdoví čeho se tu ještě dožijeme._
 
-Ale nestěžuju si, aby sis nemyslela, jídlo je tu dobré – dnes byl k večeři houbový guláš z pravých hřibů, zimou netrpíme, s kamarády je legrace. Však ono to jednou skončí a my si, Aničko Dušičko, padneme do náruče. Ani nevíš, jak je mi po Tobě smutno…
+> _Ale nestěžuju si, aby sis nemyslela, jídlo je tu dobré – dnes byl k večeři houbový guláš z pravých hřibů, zimou netrpíme, s kamarády je legrace. Však ono to jednou skončí a my si, Aničko Dušičko, padneme do náruče. Ani nevíš, jak je mi po Tobě smutno…_
 
-_Tvůj milující  
-Oldřich_
-
-  
+> _Tvůj milující  
+> Oldřich_
 
 Stalo se, co se muselo stát. Když se na začátku mluví o nebezpečí ohně, když se pohybujeme v hořlavém prostředí a v kapse nám chrastí zápalky, co můžeme očekávat? Nejčastější příčinou pohrom a tragédií bývají vášně. Propukne-li něco takového v člověku, zdravý rozum a střízlivý úsudek odejdou do ústraní a vyklidí prostor bez rozumu a neuváženému konání – vášni.
 
@@ -526,11 +510,11 @@ Lidé, které osud spřáhl do těsného houfce, by o sobě měli vědět co ne
 
 „Já to mohu dosvědčit,“ řekl kuchař okultista Jurajda, „vždyť jsme spolu vyrůstali v jednom sirotčinci! Tatjan Tatjanovič Stěnolezyn, čestný člověk, nikdy nekecá. Je božský! Má jenom jednu slabůstku: vášnivě rád kouří silný tabáček.“
 
-Osamělý noční plavec uprostřed oceánu na chatrném, neovladatelném voru, bezmocný, zmítaný vlnami. Až zahynu, pes po mně neštěkne. Začal padat sníh, mokrý, v chuchvalcích, šimral na tváři.
+_Osamělý noční plavec uprostřed oceánu na chatrném, neovladatelném voru, bezmocný, zmítaný vlnami. Až zahynu, pes po mně neštěkne. Začal padat sníh, mokrý, v chuchvalcích, šimral na tváři._
 
-Kdo to zavinil? Komu to vyčíst? – Nikomu! Nikdo mě… Sám jsem se… Vyvržen na troskách z Medúzy uprostřed vod, z vlastního rozhodnutí vyčleněn z přívětivého světa, ze snesitelné společnosti, vězím v bezmoci napospas okolnostem, živlům napospas, a nemohu pokračovat v cestě kolem světa. Nezbývá než čekat na příznivý vítr nebo pomoc bližního, zatímco vzdálený svět se otáčí beze mne, bez mého přičinění pádí kupředu, do neznáma. Vyskakovat a křičet zoufalstvím, spílat jsem už přestal, prosit Boha o pomoc je zbytečné, má svých starostí dost… Je mi zima. Mohu dýchat a choulit se do sebe, pronikat do vlastního nitra, zahřívat se svým vlastním srdcem a nové kontinenty hledat ve své vlastní hlavě, ve spleti chaotických spojů a nevyžádaných fantasmagorií.
+_Kdo to zavinil? Komu to vyčíst? – Nikomu! Nikdo mě… Sám jsem se… Vyvržen na troskách z Medúzy uprostřed vod, z vlastního rozhodnutí vyčleněn z přívětivého světa, ze snesitelné společnosti, vězím v bezmoci napospas okolnostem, živlům napospas, a nemohu pokračovat v cestě kolem světa. Nezbývá než čekat na příznivý vítr nebo pomoc bližního, zatímco vzdálený svět se otáčí beze mne, bez mého přičinění pádí kupředu, do neznáma. Vyskakovat a křičet zoufalstvím, spílat jsem už přestal, prosit Boha o pomoc je zbytečné, má svých starostí dost… Je mi zima. Mohu dýchat a choulit se do sebe, pronikat do vlastního nitra, zahřívat se svým vlastním srdcem a nové kontinenty hledat ve své vlastní hlavě, ve spleti chaotických spojů a nevyžádaných fantasmagorií._
 
-Je mi zima, zima je mi. Zima! Zima se po mně prochází, leze do mne ze všech stran; lezavá, úpěnlivá zima. Kdyby to byl mráz, krutý, palčivý a zničující, bylo by to hned. Takhle se to vleče… Můj prám spočívá na klidné, temné vodě, padá na něj sníh. Vločky slepené do chuchvalců snášejí se zvolna, měkce mi přistávají na těle. Ještě žiju, ještě na mně roztávají…
+_Je mi zima, zima je mi. Zima! Zima se po mně prochází, leze do mne ze všech stran; lezavá, úpěnlivá zima. Kdyby to byl mráz, krutý, palčivý a zničující, bylo by to hned. Takhle se to vleče… Můj prám spočívá na klidné, temné vodě, padá na něj sníh. Vločky slepené do chuchvalců snášejí se zvolna, měkce mi přistávají na těle. Ještě žiju, ještě na mně roztávají…_
 
 „Večerka!“ zaječel Kazak Kazačok dbalý pořádku, k němuž ho přivedli za služby v Rudé armádě, a začal zběsile bušit půlkilovým kladivem do kolejnice zavěšené na recepční boudě. – Ale vždyť ještě ani tma nebyla pořádná, a i kdyby byla, mohli si rozdělat oheň a posedět třeba do rána, vždyť si tak pěkně povídali a vyspávat mohou do oběda, však jim ten Sovětský svaz neuteče. Samohonky z lesních plodů také nebyl nedostatek. Ještě se chtěli dozvědět, jak se dostali starší lejtěnant Tatjan Tatjanovič Stěnolezyn, čestný člověk, s kuchařem okultistou Župajdou do roury v příkopu poblíž Kuřích Vod. A co tam dělali. Museli k tomu přece mít nějaký důvod… Nu což, zítra je taky den.
 
@@ -550,45 +534,39 @@ Pecka se už stačil zorientovat. Bos, jenom v trenýrkách z Prkén­kova skl
 
 Už mu nikdo nemohl pomoci. Oboroh shořel do mrtě, jen hromádka jemného senného popela zbyla. Z čestného člověka Tatjana Tatjanoviče Stěnolezyna nezůstalo nic, ani kosti, ani škvarek, jaký by se vešel do krabice od bot.
 
-  
+> A kdepak že vy se, paňi, pořád… Už jsem vás neviděla, ani nepamatuji. Já vím, to je neustále cosi. Taky už jsem dlouho nevytáhla paty, všude samá chřipka, AIDS, žloutenka, SARS a ebola, to aby se člověk bál vystrčit nos, aby na něho něco, a co pak s tím, že. Nejhorší je to v čekárnách u doktora, tam to na vás číhá pěkně v teple pod lékařským dohledem a vy to chytnete, ani nevíte jak. Nejlepší uvařit hrnec čaje z lipového květu s citronem, medem osladit, dva aspiriny a pořádně se vypotit. Kdepak bych vás, paňi, mohla potkat, když jsem se čtrnáct dnů nejmíň potila. Taky ohřátá vincentka s horkým mlékem napůl pomáhá. Jak jsem vám, paňi, posledně vyprávěla o tom Navrátilovi, jak pořád píše zamilovaná psaníčka té studentce na učitelku základní školy, Anna Dušičková se jmenuje, tak ta ještě zdaleka nedostudovaná chodí v hodně volných šatech, a když si vezme tepláky, je to vidět, nejsem slepá. Ani to moc neschovává, jako kdyby na to byla pyšná, taková mladá, ještě ve škole a už. Z těch dopisů od Navrátila to určitě nemá. To bude pěkné číslo, a pak tomu svěřte děti! Kdepak, ještě že nejsem mladá, za nás něco takového, paňi, to mi věřte… Až ten se vrátí z války, jestli se vrátí, snad už nebude mít flintu, aby náhodou… A hned děcko! Ani bych se mu nedivila. Takový voják ve válce pěkně zpustne, pak už se s ničím nemaluje. Nejhorší je prý zastřelit prvního, ti další už jdou jako maliny. Taková pěkná slečinka, takový konec bych jí opravdu nepřála! Tak oni při tom pátrání po Sovětském svazu – jako kdyby ho už dávno nezrušili – narazili na jakéhosi kozáka v ušance s utrženým uchem, svázali ho do kozelce, a když jim neprozradil, kde se Sovětský svaz schovává, tak mu zalepili hubu, zahrabali ho v kupce sena a utekli jako malí kluci. Za dva dny jel tudy traktorista se zrním do mlýna a odhodil hořící nedopalek do té kupky s kozákem. Seno vzplálo, ale traktorista už byl pryč a nikde nikdo. Tak. Tak to dopadlo. Zatímco ta povedená partička už byla za Užhorodem, tady taková tragédie v kupce sena. Prý to hořelo jak vích, jestli víte, paňi, co je to vích a jak hoří. Ale kde ten Sovětský svaz hledat, to jim, paňi, nikdo neřekl, a tak se teď ženou na Kyjev a myslí si, že by tam mohli něco zjistit.
 
-A kdepak že vy se, paňi, pořád… Už jsem vás neviděla, ani nepamatuji. Já vím, to je neustále cosi. Taky už jsem dlouho nevytáhla paty, všude samá chřipka, AIDS, žloutenka, SARS a ebola, to aby se člověk bál vystrčit nos, aby na něho něco, a co pak s tím, že. Nejhorší je to v čekárnách u doktora, tam to na vás číhá pěkně v teple pod lékařským dohledem a vy to chytnete, ani nevíte jak. Nejlepší uvařit hrnec čaje z lipového květu s citronem, medem osladit, dva aspiriny a pořádně se vypotit. Kdepak bych vás, paňi, mohla potkat, když jsem se čtrnáct dnů nejmíň potila. Taky ohřátá vincentka s horkým mlékem napůl pomáhá. Jak jsem vám, paňi, posledně vyprávěla o tom Navrátilovi, jak pořád píše zamilovaná psaníčka té studentce na učitelku základní školy, Anna Dušičková se jmenuje, tak ta ještě zdaleka nedostudovaná chodí v hodně volných šatech, a když si vezme tepláky, je to vidět, nejsem slepá. Ani to moc neschovává, jako kdyby na to byla pyšná, taková mladá, ještě ve škole a už. Z těch dopisů od Navrátila to určitě nemá. To bude pěkné číslo, a pak tomu svěřte děti! Kdepak, ještě že nejsem mladá, za nás něco takového, paňi, to mi věřte… Až ten se vrátí z války, jestli se vrátí, snad už nebude mít flintu, aby náhodou… A hned děcko! Ani bych se mu nedivila. Takový voják ve válce pěkně zpustne, pak už se s ničím nemaluje. Nejhorší je prý zastřelit prvního, ti další už jdou jako maliny. Taková pěkná slečinka, takový konec bych jí opravdu nepřála! Tak oni při tom pátrání po Sovětském svazu – jako kdyby ho už dávno nezrušili – narazili na jakéhosi kozáka v ušance s utrženým uchem, svázali ho do kozelce, a když jim neprozradil, kde se Sovětský svaz schovává, tak mu zalepili hubu, zahrabali ho v kupce sena a utekli jako malí kluci. Za dva dny jel tudy traktorista se zrním do mlýna a odhodil hořící nedopalek do té kupky s kozákem. Seno vzplálo, ale traktorista už byl pryč a nikde nikdo. Tak. Tak to dopadlo. Zatímco ta povedená partička už byla za Užhorodem, tady taková tragédie v kupce sena. Prý to hořelo jak vích, jestli víte, paňi, co je to vích a jak hoří. Ale kde ten Sovětský svaz hledat, to jim, paňi, nikdo neřekl, a tak se teď ženou na Kyjev a myslí si, že by tam mohli něco zjistit.
+_Vyprávějte někomu, že jdete kolem světa a kolik jste urazili! Nikdo vám neuvěří. Budou si o vás myslet, že jste pošetilý stařec, kterého se nepodařilo setřást a teď se vytahuje. Vyprávějte někomu, že jste došel k moři a pokračujete v cestě na voru sbitém z trosek!_
 
-Vyprávějte někomu, že jdete kolem světa a kolik jste urazili! Nikdo vám neuvěří. Budou si o vás myslet, že jste pošetilý stařec, kterého se nepodařilo setřást a teď se vytahuje. Vyprávějte někomu, že jste došel k moři a pokračujete v cestě na voru sbitém z trosek!
+_Noc je mámivá, temná, bezhvězdná, taky měsíc se zatoulal, někde v hostinci si na počest jara dává rum. Měl bych prám nechat plavat a vrátit se domů, do vyleženého důlku v posteli, snít přívětivé sny o létání. Nemohu, vždyť jsem na cestě. Na cestě kolem světa. V tiché tmě zaslechnu šplouchnutí. Zahlédnu světýlko… Jsou to přeludy, konec už se blíží… Konec světa, konec mého světa, můj konec…_
 
-Noc je mámivá, temná, bezhvězdná, taky měsíc se zatoulal, někde v hostinci si na počest jara dává rum. Měl bych prám nechat plavat a vrátit se domů, do vyleženého důlku v posteli, snít přívětivé sny o létání. Nemohu, vždyť jsem na cestě. Na cestě kolem světa. V tiché tmě zaslechnu šplouchnutí. Zahlédnu světýlko… Jsou to přeludy, konec už se blíží… Konec světa, konec mého světa, můj konec…
+_Laskavá ruka se mne ujímá, ležím na palubě s hlavou podloženou svinutým lanem, lampa na ráhnu se lehce pohupuje, džbán se ke mně naklání, džbán s chladivou pitnou vodou, piju, chlemtám živou vodu jak velbloud, který přešel poušť, stéká mi po tváři, sladká jako život. Žiju! Pak miska s hrachovou kaší a suchar na kost vysušený, máčím ho ve vodě a polykám nabobtnalé chuchvalce, lžicí nabírám žlutou, zlatou kaši, cpu to do sebe, nadívám si břicho, jako bych se bál, že mi to urvou od úst a hodí rybám. Dívají se na mne spokojeně, smějí se, radují, jak mi chutná, že mě zachránili, čirou náhodou na mne narazili, vždyť mě mohli minout. Byla by to škoda, takového chlapíka, s takovým apetýtem. Siláka, který se udrží, i když stromem třese celá vesnice!_
 
-Laskavá ruka se mne ujímá, ležím na palubě s hlavou podloženou svinutým lanem, lampa na ráhnu se lehce pohupuje, džbán se ke mně naklání, džbán s chladivou pitnou vodou, piju, chlemtám živou vodu jak velbloud, který přešel poušť, stéká mi po tváři, sladká jako život. Žiju! Pak miska s hrachovou kaší a suchar na kost vysušený, máčím ho ve vodě a polykám nabobtnalé chuchvalce, lžicí nabírám žlutou, zlatou kaši, cpu to do sebe, nadívám si břicho, jako bych se bál, že mi to urvou od úst a hodí rybám. Dívají se na mne spokojeně, smějí se, radují, jak mi chutná, že mě zachránili, čirou náhodou na mne narazili, vždyť mě mohli minout. Byla by to škoda, takového chlapíka, s takovým apetýtem. Siláka, který se udrží, i když stromem třese celá vesnice!
-
-Když mě nasytili a napojili, když jsem do sebe vecpal třetí nášup, odvedli mě do podpalubí a určili místo, na kterém teď budu pobývat: třetí lavice na levoboku. A pak mě přikovali k veslu mezi zadumaného Seveřana a černocha s oslnivým úsměvem. Galéra nemusí čekat na příznivý vítr, dokáže plout i v bezvětří. Když je potřeba, i proti větru.
+_Když mě nasytili a napojili, když jsem do sebe vecpal třetí nášup, odvedli mě do podpalubí a určili místo, na kterém teď budu pobývat: třetí lavice na levoboku. A pak mě přikovali k veslu mezi zadumaného Seveřana a černocha s oslnivým úsměvem. Galéra nemusí čekat na příznivý vítr, dokáže plout i v bezvětří. Když je potřeba, i proti větru._
 
 ## 4
-
-  
 
 Степь, да степь кругом… zpívali si a pak už jenom broukali, protože nevěděli, jak je to dál, neuměli slova, ale melodie pokračovala, píseň se jim líbila kvůli nápěvu, protože vyjadřoval to, čím projížděli: step. Step je spíš melodie než zbytečná slova. Step slovy nevyslovíš.
 
 Uháněli cestou necestou, cesta chvíli byla, pak se ztratila a nebyla, než se zase vynořila někde jinde, kde by ji nikdo nehledal. Širá step si cest příliš neváží. Chceš jet? Jeď! Jeď si, kudy chceš, nikdo ti nebude žádné cesty, silnice nebo dálnice předepisovat. Nechceš jet? Nemusíš… Ve válce si voják cesty nevybírá, jede, kudy to jde, kudy musí, kudy ho ta válka vede. Válka je vedla nekonečnou stepí. Степь, да степь кругом, путь далек лежит, в той степи глухой умирал ямщик… Vpředu Lada Niva s plukovníkem Kotulánem za volantem, po boku mu seděl konceptualista Pytlíček a snil o tom, že se mu někdy podaří integrovat step do některého ze svých konceptů, do toho nejskvělejšího. Jenže jak? Na zadním sedadle si hověla Melodie Podpolanská, v levé ruce kulaté zrcátko, v pravé pinzetu, snažila se vytrhnout nežádoucí chloupek z kořene nosu, jenže automobil drncal po nerovné stepi a Melodie se ne a ne trefit. Zatracená step!
 
-> И, набравшись сил, чуя смертный час,  
-> Он товарищу отдавал наказ:
+_И, набравшись сил, чуя смертный час,  
+Он товарищу отдавал наказ:_
 
-> Ты, товарищ мой, не попомни зла,  
-> Здесь в степи глухой схорони меня.
+_Ты, товарищ мой, не попомни зла,  
+Здесь в степи глухой схорони меня._
 
-> Ты, лошадушек, сведи к батюшке,  
-> Передай поклон родной матушке.
+_Ты, лошадушек, сведи к батюшке,  
+Передай поклон родной матушке._
 
-> А жене скажи слово прощальное,  
-> Передай колько обручальное.
+_А жене скажи слово прощальное,  
+Передай колько обручальное._
 
-> Да скажи ты еи – пусть не печалится,  
-> Пусть с другом она обвелчается.
+_Да скажи ты еи – пусть не печалится,  
+Пусть с другом она обвелчается._
 
-> Про меня скажи, что в степи замерз,  
-> А любов еë я с собой унес.
-
-  
+_Про меня скажи, что в степи замерз,  
+А любов еë я с собой унес._
 
 V gazíku vystřídal staršina Prkénko v řízení kuchaře okultistu Jurajdu, který nebyl po tragickém odchodu svého přítele Tatjana Tatjanoviče Stěnolezyna, čestného člověka, k použití. Vždyť spolu vyrostli v jednom sirotčinci, v jedné postýlce… Navrátil s Peckou a Weinbergerem na zadních sedadlech také neoplývali dobrou náladou. Chtěli šíleného Kazaka Kazačoka předat místní spravedlnosti, už ho měli chyceného, už sháněli provaz, že ho spoutají, jenže udržte zběsilce v afektu a haste přitom ještě uhlíky po shořelém oborohu! Kazak Kazačok se jim vysmekl a utekl do lesa. Hoňte pak uprchlého kozáka po lesích, hledejte ho v temném hvozdu, když musíte do války!
 
@@ -638,13 +616,13 @@ Třetího dne začal proud pomalu slábnout, ustávat, přesně pět minut po po
 
 Bílá řeka odtekla stepí do Dněpru a s vodami Dněprem do Černého moře, zúžila se v potok, potůček, čůrek, čůreček… V prohlubni pod pahorkem zůstalo bílé jezírko; mléko v něm zkyslo, zhořklo, srazilo se a změnilo v zapáchající břečku. Pachem přilákalo všechny mouchy ze stepi a ty mouchy břečku snědly, moc jim chutnala.
 
-Je-li člověk na galéře galejníkem přikovaným k veslu, je zbaven všeho lidství. Nemůže uplatnit ani základní potřebu – odskočit si na záchod. Čas od času to spláchnou kýblem slané vody. Na galéře nepotřebují člověka, potřebují veslaře: svalovou hmotu. Člověk na galéře je pohon poháněný hrachovou kaší, suchary a vodou; ekologický zdroj energie, obnovitelný zdroj. Vyčerpá-li se, ryby ho sežerou. Rybí maso je zdravé, obsahuje fosfor. Mozek není člověku přikovanému na galéře nic platný. Člověk přikovaný k veslu by jenom přemýšlel, jak se vymanit. Jenže se nevymaní, neboť je přikován pevně. Od vesla je osvobozen, až když umře. – Bum, bum. Bum, bum. Bum, bum…
+_Je-li člověk na galéře galejníkem přikovaným k veslu, je zbaven všeho lidství. Nemůže uplatnit ani základní potřebu – odskočit si na záchod. Čas od času to spláchnou kýblem slané vody. Na galéře nepotřebují člověka, potřebují veslaře: svalovou hmotu. Člověk na galéře je pohon poháněný hrachovou kaší, suchary a vodou; ekologický zdroj energie, obnovitelný zdroj. Vyčerpá-li se, ryby ho sežerou. Rybí maso je zdravé, obsahuje fosfor. Mozek není člověku přikovanému na galéře nic platný. Člověk přikovaný k veslu by jenom přemýšlel, jak se vymanit. Jenže se nevymaní, neboť je přikován pevně. Od vesla je osvobozen, až když umře. – Bum, bum. Bum, bum. Bum, bum…_
 
-Vydá-li se člověk na cestu kolem světa, riskuje, že potká něco, co by potkat nechtěl: loupežného vraha, zdivočelého psa, lstivého podvodníka… Riskuje, že ho přikovají k veslu. Kdybych se byl býval nevydal na cestu kolem světa, nebyl bych se stal pohonem zámořského plavidla. Mohl jsem pobývat mezi svými zdmi, pobírat rentu a spokojeně pukat z pěnovky, po kávě a dezertu drobit u vody kačenám, lyskám a labutím starý chleba. Nebo bych mohl psát memoáry hrstce čtenářů pro zábavu a poučení.
+_Vydá-li se člověk na cestu kolem světa, riskuje, že potká něco, co by potkat nechtěl: loupežného vraha, zdivočelého psa, lstivého podvodníka… Riskuje, že ho přikovají k veslu. Kdybych se byl býval nevydal na cestu kolem světa, nebyl bych se stal pohonem zámořského plavidla. Mohl jsem pobývat mezi svými zdmi, pobírat rentu a spokojeně pukat z pěnovky, po kávě a dezertu drobit u vody kačenám, lyskám a labutím starý chleba. Nebo bych mohl psát memoáry hrstce čtenářů pro zábavu a poučení._
 
-Na třetí lavici mezi zadumaným Seveřanem a černochem s oslni­vým úsměvem jsem přikován k veslu a nejlíp bych udělal, kdybych neměl mozek. Pohon bez mozku pracuje spolehlivěji nežli pohon s mozkem. Jenže já mozek mám, uvědomuji si své postavení, je mi v něm zle a chci to změnit. Ale jak? – Literatura naštěstí dokáže nalézat řešení pro každou situaci, aby děj mohl pokračovat, abychom dospěli k rozuzlení a ke šťastnému konci. Přece se nezbavíme klíčové postavy uprostřed knížky!
+_Na třetí lavici mezi zadumaným Seveřanem a černochem s oslni­vým úsměvem jsem přikován k veslu a nejlíp bych udělal, kdybych neměl mozek. Pohon bez mozku pracuje spolehlivěji nežli pohon s mozkem. Jenže já mozek mám, uvědomuji si své postavení, je mi v něm zle a chci to změnit. Ale jak? – Literatura naštěstí dokáže nalézat řešení pro každou situaci, aby děj mohl pokračovat, abychom dospěli k rozuzlení a ke šťastnému konci. Přece se nezbavíme klíčové postavy uprostřed knížky!_
 
-Mozek funguje, hlava muže přikovaného k veslu hledá východisko, žádné však nenalézá… – Tato prekérní situace má i svoje výhody: střídmá strava zaručuje štíhlou linii, mořský vzduch, který sem proudí otvory pro vesla, je osvěžující a vydatný tělocvik brání atrofii svalstva.
+_Mozek funguje, hlava muže přikovaného k veslu hledá východisko, žádné však nenalézá… – Tato prekérní situace má i svoje výhody: střídmá strava zaručuje štíhlou linii, mořský vzduch, který sem proudí otvory pro vesla, je osvěžující a vydatný tělocvik brání atrofii svalstva._
 
 Nadrotmistr Prkénko si upravil kravatu tak, aby uzel tvaru rovnoramenného trojúhelníka byl symetrický podle osy, a předstoupil před velitele, utajeného v civilních šatech a v civilním chování. Voják jako ze škatulky, voják každým coulem stanul před podivným vagabundem s vykasanými rukávy nedopnuté košile. Vyžehlený nadrotmistr Prkénko salutoval a zlaté knoflíky se na něm blýskaly v podzimním slunci.
 
@@ -700,27 +678,25 @@ Prkénko svlékl uniformu a ve fundusu civilních oděvů pořízených před o
 
 Vojska plukovníka Kotulána zjihlými zraky sledovala, jak se staršina nadrotmistr Prkénko vzdaluje, jak se ztrácí za obzorem. Rozšuměl se kavyl, stepní tráva a zatoulaného pasáčka slavné krávy Poslušnice II. už nikdo nikdy nespatřil.
 
-_Step, čtvrtek_
+> _Step, čtvrtek_
 
-Moje milovaná Aničko!
+> _Moje milovaná Aničko!_
 
-Je mi moc líto, že ta naše korespondence může být jenom jednostranná. Ani nevíš, jak rád bych od Tebe dostal dopis, třeba jenom krátký, kratičký. Mazlil bych se s ním, jako bych se rád mazlil s rukou, která ho psala, nosil bych ho stále při sobě a pořád ho četl, znovu a znovu, i když bych ho znal nazpaměť, až by byl docela vyčtený. Osud je neúprosný, příliš nám nepřeje. Copak mohu vědět, kde budu zítra? Vždyť nevím ani, kde hlavu složím dnešní noci.
+> _Je mi moc líto, že ta naše korespondence může být jenom jednostranná. Ani nevíš, jak rád bych od Tebe dostal dopis, třeba jenom krátký, kratičký. Mazlil bych se s ním, jako bych se rád mazlil s rukou, která ho psala, nosil bych ho stále při sobě a pořád ho četl, znovu a znovu, i když bych ho znal nazpaměť, až by byl docela vyčtený. Osud je neúprosný, příliš nám nepřeje. Copak mohu vědět, kde budu zítra? Vždyť nevím ani, kde hlavu složím dnešní noci._
 
-Táhneme širou stepí a nikde žádná poštovní schránka, které bych svěřil, co tu teď smolím na zadním sedadle válečnického automobilu. Přespáváme pod širákem zababušeni ve spacáku, noci jsou chladné, vítr si pohrává s přezrálou, usychající trávou, je podzim.
+> _Táhneme širou stepí a nikde žádná poštovní schránka, které bych svěřil, co tu teď smolím na zadním sedadle válečnického automobilu. Přespáváme pod širákem zababušeni ve spacáku, noci jsou chladné, vítr si pohrává s přezrálou, usychající trávou, je podzim._
 
-Nedávno jsme se tu setkali s přívětivou krávou plnou mléka a ta nám poradila, abychom se vydali do Kyjeva za jakýmsi knížetem a ten nám řekne, kudy dál. A tu mne napadlo, že bys mohla aspoň krátké psaníčko adresovat jako poste restante na hlavní poštu v Kyjevě. Jenom nevím, dokážou-li zdejší pošťáci přelouskat latinku. Nevím, ty moje dušičko, mohu-li po Tobě chtít, aby ses trápila s azbukou… Jak by to bylo krásné, kdyby mne v Kyjevě na hlavní poště očekával dopis od Tebe. Asi bych na té poště vyskočil radostí až do stropu.
+> _Nedávno jsme se tu setkali s přívětivou krávou plnou mléka a ta nám poradila, abychom se vydali do Kyjeva za jakýmsi knížetem a ten nám řekne, kudy dál. A tu mne napadlo, že bys mohla aspoň krátké psaníčko adresovat jako poste restante na hlavní poštu v Kyjevě. Jenom nevím, dokážou-li zdejší pošťáci přelouskat latinku. Nevím, ty moje dušičko, mohu-li po Tobě chtít, aby ses trápila s azbukou… Jak by to bylo krásné, kdyby mne v Kyjevě na hlavní poště očekával dopis od Tebe. Asi bych na té poště vyskočil radostí až do stropu._
 
-Ale nemysli si, Aničko Dušičko, že to psaní po Tobě loudím, že bez něj zahynu v daleké cizině. Musel by to být zázrak, aby mě zpráva od Tebe našla. Vím, že na mne myslíš i tak, jako já na Tebe. Vědomí Tvé existence, byť vzdálené a stále se vzdalující, mne naplňuje radostí a štěstím.
+> _Ale nemysli si, Aničko Dušičko, že to psaní po Tobě loudím, že bez něj zahynu v daleké cizině. Musel by to být zázrak, aby mě zpráva od Tebe našla. Vím, že na mne myslíš i tak, jako já na Tebe. Vědomí Tvé existence, byť vzdálené a stále se vzdalující, mne naplňuje radostí a štěstím._
 
-Však ono to odloučení jednou pomine a my si budeme moci ruku v ruce vyjít do rozkvetlé louky.
+> _Však ono to odloučení jednou pomine a my si budeme moci ruku v ruce vyjít do rozkvetlé louky._
 
-Ani nevíš, jak rád bych byl s Tebou teď, za chvilku, napořád…
+> _Ani nevíš, jak rád bych byl s Tebou teď, za chvilku, napořád…_
 
-_Tvůj Oldřich_
+> _Tvůj Oldřich_
 
 ## 5
-
-  
 
 Step jako by konce neměla. Nebo snad přejeli bludný balvan a teď tu jezdí v kruhu po pláních a terénních vlnách bez kloudného orientačního bodu ve vlastních stopách? Plukovník Kotulán předal řízení Lady Nivy Melodii, Pytlíčka zahnal na zadní sedadlo a sám na sedadle vpravo vpředu bádal s použitím buzoly nad fyzikální mapou bývalého Sovětského svazu vytrženou ze školního zeměpisného atlasu; snažil se aspoň zorientovat, ale k nějakému použitelnému závěru ne a ne se dobrat.
 
@@ -814,26 +790,24 @@ Zazněl gong a opona se zvedla. Na jevišti stál stošestihlavý ženský sbor
 
 Chorovod vystřídaly nahé kolchoznice s častuškou. Pořád se jaksi bezradně rozhlížely, jako by něco hledaly, jako by jim cosi chybělo. Vtom se shůry snesl kulhavý Prochor i s harmonikou a nahé kolchoznice se očividně zaradovaly. Častuška je sice možná i bez harmonikáře, ale s harmonikářem je to lepší. A už to frčelo. Prochor roztáhl měch, kolchoznice se navzájem chytily v pase, rozkývaly se v rytmu, ňadra bujná kolchozní se jim houpala, sólistky Máša, Sáša a Natáša předstoupily před sbor a spustily:
 
-> Koza děla  
-> naletěla  
-> nevěděla  
-> uletěla
+_Koza děla  
+naletěla  
+nevěděla  
+uletěla_
 
 A k sólistkám se přidal sbor:
 
-> Tak tak je to tak bílá bříza černý fták  
-> Umručela  
-> zabručela  
-> byla celá  
-> od jetela  
-> Tak tak je to tak nebe peklo naopak  
-> Zasadila  
-> namastila  
-> uchodila  
-> a pryč byla  
-> Tak tak je to tak Němci zdraví gutnták
-
-  
+_Tak tak je to tak bílá bříza černý fták  
+Umručela  
+zabručela  
+byla celá  
+od jetela  
+Tak tak je to tak nebe peklo naopak  
+Zasadila  
+namastila  
+uchodila  
+a pryč byla  
+Tak tak je to tak Němci zdraví gutnták_
 
 Prochor hvízdl hvizdem Slavíka loupežníka a vyhodil harmoniku do výšky. Častuškyně kolchoznice se hluboce uklonily, až se bradavkami podlahy dotkly, pohlédly vzhůru, jako by se obávaly, že jim vyhozená harmonika spadne na hlavu, ale nespadla. Padla opona s bohatýrem Čurilou Plenkovičem jasnými barvami vymalovaným. Zpoza opony se ozval bolestný výkřik Prochora harmonikáře. Když harmonika za spuštěnou oponou konečně dopadla, přerazila mu obě ruce k ní se vztahující.
 
@@ -889,17 +863,13 @@ Netrvalo dlouho a Pecka se z jámy vynořil. Vlekl za sebou rozměrný předm�
 
 „Konec orgií!“ zvolaly orgijnušky panny, samy si rozpletly copy a zahalily se do pšeničných vlasů.
 
-  
+> Ještě jsem vám, paňi, neřekla, že s tou cháskou vojenskou je taky ženská. Řekla? Tak vám teď o ní cosi povím: Představte si! Svému manželovi utekla, to je tak, když si starší solidní pán vezme mladou, bůhví odkud se vzatou ženskou jen pro její vnady a úsměv falešný, zvláště pak je-li ten pán docela náruživé povahy. Vždyť co ona by si na něm vzala, leda ty peníze naspořené za léta dřiny. Určitě kvůli penězům, vždyť ty jsou až v první řadě, že, jak se teď moderně říká, ale taky kvůli slávě, to se nedá pominout, vždyť stréčka Křópalovýho znal za první republiky a za druhé republiky i za protektorátu každý, kdo měl rádio a kdo rádio neměl, aspoň z doslechu. I po válce. Povídal do rádia lidové vyprávěnky z Hané, to je až na Moravě, hanácky, to je veliká legrace, když někdo mluví hanácky, to vám řeknu. Ale musí to umět! Měli jste, paňi, za první republiky rádio? Nebo za druhé? Tak vidíte, a ten se pak dal k vojákům do Ústředního vojenského souboru písní, tanců a lidových vyprávěnek Rudého praporu ze Sušice. Jestli tam měl víc peněz než v rádiu? Nebo ho okouzlilo kouzlo uniformy? Určitě v tom byly peníze, znáte Hanáky, hamouny shánčlivé. No a právě tam se sčuchl s tou, kdybych já věděla, jak se jmenuje doopravdy a odkud vlastně je ta perzóna, z Nuslí není, ani z Karlína, jestli se ona, paňi, nenarodila ve voze a jestli ty zrzavé vlasy nejsou ve skutečnosti černé jako havran, co nosí na hlavě. Nic proti nim, jsou to taky tvorečkové boží a jeden si nevybírá, komu se narodí a kam. Na druhou stranu zase, jsou mezi lidmi rozdíly, ne že ne. Tak ta. Dala si umělecké jméno a dělá, že je její a jiné nemá: Melodie Podpolanská. To by si přece nikdo nevymyslel! Taky má vojenskou šarži, praporčice, ale v mundúru ji nikdo neviděl. Představte si, paňi, že i ve válce, celou tu dobu, všechna strádání a útrapy válečné, má ta kráva nesmírná na sobě večerní šaty z temně rudého sametu pošité flitry, s hlubokým dekoltem – no, občas si je přepere v lavoru s vlažnou vodou, to se musí nechat, a když jí nějaký ten flitr upadne, hned ho zas přišije. Jestlipak uhodnete, co má při těch štrapácích poli válečnými na nohou? To byste neuhodla: zlaté střevíčky na takhle, nepřeháním, takhle vysokých podpatcích! Šla byste, paňi, v něčem takovém do války se Sovětským svazem? Já bych v něčem takovém nešla ani do holešovické tržnice. A představte si, paňi, že s nimi táhne dobrovolně. Tomu hodnému panu Křoupalovi s nimi utekla v Bdělé pod Bezdězem, když tam s Ústředním vojenským souborem písní, tanců a lidových vyprávěnek Rudého praporu ze Sušice vystupovali. Dotáhl to až na plukovníka lidové zábavy, a když armádu zrušili, není to tak dávno, dostal odstupné a moc pěknou penzi plukovnickou. Jen aby si jí mohl ještě dlouho užívat! Byla by to moc dobrá partie, to mi věřte, však se taky z té Sušice přestěhoval. A hádejte, paňi, kam? Domů na Hanou? Kdepak! K nám do Nuslí se přestěhoval, má dva plus jedna v Kloboučnické, bytové družstvo vlastníků. Jenže ta potvora vojanda se s ním nerozvedla ani na dálku, kdepak, mrcha jedna, a zřejmě se s ním nerozvede, ani kdyby tu válku vyhráli. Byla by blbá, a to ona není, kdyby se rozváděla. S takovou penzí! Škoda… Chodím mu občas trochu uklidit a nakoupit, je už slabší na nohy, to víte, celý život prostál na jevištích a mlel hubou, to se zapíše, to se nemůže na zdravíčku neprojevit. Ale nemyslete si, chlap to pořád ještě je, a kdyby ho dostala pořádná ženská pořádně do rukou, ještě se z něj dá něco vyždímat. Nechci se chlubit, ale… No, nechme toho. Kdepak, ta se ho nepustí, i když ho opustila, leda by v té válce – nic zlého nikomu nepřeji – padla. Ono se ve válkách padá dost často, ne že ne. A představte si, že ten plukovník z Kloboučnické nemluví hanácky ani trošku, jenom když mě chce rozveselit, když mu uvařím nudlovou polívku ze slepičích koster, aby byl dost silný a mohl si dojít do banky. Normálně mluví normálně, jako by byl z Nuslí rodákem, když mu přinesu ten nákup ve vší počestnosti. Ale řeknu vám, paňi, že i když je člověk ve věku a postonává, ještě to neznamená, že je vyřízený. Kdepak, ta už se nevrátí. Vždyť oni ten Sovětský svaz ještě ani nenašli. Až ho najdou, jestli ho najdou, není jisté, že zrovna ta Kotulánova banda nad tím Sovětským svazem zvítězí. Moc o tom pochybuji. A taky žádné děti spolu nemají, ani každý zvlášť. Uteče si od manžela a celý ten majetek, co po něm zůstane, spadne té potvoře zmalované cikánce zrzavé – nic proti Romům, paňi, jsou mezi nimi i slušní a čistotní – do klína. Pak že je nějaká spravedlnost. Není!
 
-Ještě jsem vám, paňi, neřekla, že s tou cháskou vojenskou je taky ženská. Řekla? Tak vám teď o ní cosi povím: Představte si! Svému manželovi utekla, to je tak, když si starší solidní pán vezme mladou, bůhví odkud se vzatou ženskou jen pro její vnady a úsměv falešný, zvláště pak je-li ten pán docela náruživé povahy. Vždyť co ona by si na něm vzala, leda ty peníze naspořené za léta dřiny. Určitě kvůli penězům, vždyť ty jsou až v první řadě, že, jak se teď moderně říká, ale taky kvůli slávě, to se nedá pominout, vždyť stréčka Křópalovýho znal za první republiky a za druhé republiky i za protektorátu každý, kdo měl rádio a kdo rádio neměl, aspoň z doslechu. I po válce. Povídal do rádia lidové vyprávěnky z Hané, to je až na Moravě, hanácky, to je veliká legrace, když někdo mluví hanácky, to vám řeknu. Ale musí to umět! Měli jste, paňi, za první republiky rádio? Nebo za druhé? Tak vidíte, a ten se pak dal k vojákům do Ústředního vojenského souboru písní, tanců a lidových vyprávěnek Rudého praporu ze Sušice. Jestli tam měl víc peněz než v rádiu? Nebo ho okouzlilo kouzlo uniformy? Určitě v tom byly peníze, znáte Hanáky, hamouny shánčlivé. No a právě tam se sčuchl s tou, kdybych já věděla, jak se jmenuje doopravdy a odkud vlastně je ta perzóna, z Nuslí není, ani z Karlína, jestli se ona, paňi, nenarodila ve voze a jestli ty zrzavé vlasy nejsou ve skutečnosti černé jako havran, co nosí na hlavě. Nic proti nim, jsou to taky tvorečkové boží a jeden si nevybírá, komu se narodí a kam. Na druhou stranu zase, jsou mezi lidmi rozdíly, ne že ne. Tak ta. Dala si umělecké jméno a dělá, že je její a jiné nemá: Melodie Podpolanská. To by si přece nikdo nevymyslel! Taky má vojenskou šarži, praporčice, ale v mundúru ji nikdo neviděl. Představte si, paňi, že i ve válce, celou tu dobu, všechna strádání a útrapy válečné, má ta kráva nesmírná na sobě večerní šaty z temně rudého sametu pošité flitry, s hlubokým dekoltem – no, občas si je přepere v lavoru s vlažnou vodou, to se musí nechat, a když jí nějaký ten flitr upadne, hned ho zas přišije. Jestlipak uhodnete, co má při těch štrapácích poli válečnými na nohou? To byste neuhodla: zlaté střevíčky na takhle, nepřeháním, takhle vysokých podpatcích! Šla byste, paňi, v něčem takovém do války se Sovětským svazem? Já bych v něčem takovém nešla ani do holešovické tržnice. A představte si, paňi, že s nimi táhne dobrovolně. Tomu hodnému panu Křoupalovi s nimi utekla v Bdělé pod Bezdězem, když tam s Ústředním vojenským souborem písní, tanců a lidových vyprávěnek Rudého praporu ze Sušice vystupovali. Dotáhl to až na plukovníka lidové zábavy, a když armádu zrušili, není to tak dávno, dostal odstupné a moc pěknou penzi plukovnickou. Jen aby si jí mohl ještě dlouho užívat! Byla by to moc dobrá partie, to mi věřte, však se taky z té Sušice přestěhoval. A hádejte, paňi, kam? Domů na Hanou? Kdepak! K nám do Nuslí se přestěhoval, má dva plus jedna v Kloboučnické, bytové družstvo vlastníků. Jenže ta potvora vojanda se s ním nerozvedla ani na dálku, kdepak, mrcha jedna, a zřejmě se s ním nerozvede, ani kdyby tu válku vyhráli. Byla by blbá, a to ona není, kdyby se rozváděla. S takovou penzí! Škoda… Chodím mu občas trochu uklidit a nakoupit, je už slabší na nohy, to víte, celý život prostál na jevištích a mlel hubou, to se zapíše, to se nemůže na zdravíčku neprojevit. Ale nemyslete si, chlap to pořád ještě je, a kdyby ho dostala pořádná ženská pořádně do rukou, ještě se z něj dá něco vyždímat. Nechci se chlubit, ale… No, nechme toho. Kdepak, ta se ho nepustí, i když ho opustila, leda by v té válce – nic zlého nikomu nepřeji – padla. Ono se ve válkách padá dost často, ne že ne. A představte si, že ten plukovník z Kloboučnické nemluví hanácky ani trošku, jenom když mě chce rozveselit, když mu uvařím nudlovou polívku ze slepičích koster, aby byl dost silný a mohl si dojít do banky. Normálně mluví normálně, jako by byl z Nuslí rodákem, když mu přinesu ten nákup ve vší počestnosti. Ale řeknu vám, paňi, že i když je člověk ve věku a postonává, ještě to neznamená, že je vyřízený. Kdepak, ta už se nevrátí. Vždyť oni ten Sovětský svaz ještě ani nenašli. Až ho najdou, jestli ho najdou, není jisté, že zrovna ta Kotulánova banda nad tím Sovětským svazem zvítězí. Moc o tom pochybuji. A taky žádné děti spolu nemají, ani každý zvlášť. Uteče si od manžela a celý ten majetek, co po něm zůstane, spadne té potvoře zmalované cikánce zrzavé – nic proti Romům, paňi, jsou mezi nimi i slušní a čistotní – do klína. Pak že je nějaká spravedlnost. Není!
+_Co je napsané, je literatura, i kdyby to byla pravda._
 
-Co je napsané, je literatura, i kdyby to byla pravda.
-
-… a veslujem, a veslujem… bum, bum, bumbum, bumbum, bumbum… hrachová kaše, suchary, voda, pitná voda, teplá voda, slaná voda, voda voda, samá voda… bum, bum, bumbum, bumbum, bumbum… mrtvého očkovali, do vody hodili, ryby nakrmili… voda, voda… bum, bum, bumbum, bumbum, bumbum, bum…
+_… a veslujem, a veslujem… bum, bum, bumbum, bumbum, bumbum… hrachová kaše, suchary, voda, pitná voda, teplá voda, slaná voda, voda voda, samá voda… bum, bum, bumbum, bumbum, bumbum… mrtvého očkovali, do vody hodili, ryby nakrmili… voda, voda… bum, bum, bumbum, bumbum, bumbum, bum…_
 
 ## 6
-
-  
 
 Žaludek se vyprázdnil, jen Kotulánova vojska s Čurilou Plenkovičem a kupeckými synky Vaskou a Michajlem zůstali, protože měli před sebou důležitý úkol: navštívit jasné slunéčko Vladimíra, hosu­dara-kněze laskavého, a laskavou kněžnu Apraksějevnu.
 
@@ -1021,7 +991,7 @@ včely, co tu včera byly!“ poznamenal varovně kníže Vladimír s ústy če
 
 Baba Jaga ve své pravé babojazí podobě popadla kuchaře okultistu Hulajdu do náruče a horoucně ho zulíbala. Když zemdlel a stal se vláčným, přehodila si ho přes rameno, odnesla ho do díže, hbitě do ní také naskočila, kopist popadla, kopistí se odrazila a v tu ránu byla pryč i s kuchařem.
 
-… bum bum, bum bum, bum bum, bum bum… Na galéře se bubnuje, aby se správně veslovalo. Za-brat, chla-pi, po-řád-ně… bum bum, bum bum, bum bum… ráz dva, ráz dva, ráz dva…
+_… bum bum, bum bum, bum bum, bum bum… Na galéře se bubnuje, aby se správně veslovalo. Za-brat, chla-pi, po-řád-ně… bum bum, bum bum, bum bum… ráz dva, ráz dva, ráz dva…_
 
 Pak se šlo do chrámu svatého Michaela archanděla, patrona města Kyjeva, a patriarcha Prochlor požehnal zbraním Kotulánova vojska a neoficiálně jim popřál, aby nad nenáviděným Sovětským svazem zvítězila. – Také bohatýr Čurila Plenkovič se s vojsky rozžehnal a popřál šťastnou cestu, jako upomínku na setkání jim daroval každému svou fotografii s podpisem. Kupečtí synkové Vaska a Michajlo se rovněž rozloučili, nedali nikomu nic, jen je ujistili svou přízní a že jim budou držet palec, aby v boji s krutým nepřítelem zvítězili. Pak nastoupili do zlatého mercedesu s bílou standartou PRAVDA ZVÍTĚZÍ! a odjeli do bohatýrova paláce na Ptačí vršek chystat další orgie. Co se dá dělat, povinnost je povinnost.
 
@@ -1091,26 +1061,24 @@ se vyhni,“ řekl kněz-hosudar laskavý Vladimír bez mrknutí oka. Víc toho 
 
 „Sláva! Konečně,“ zaradovala se vojska i s kněžnou Apraksějevnou, popadli se za ruce a utvořili kolem knížete radostné kolo, kolo kolo mlýnský za štyry rýnský. – Pak je kněžna pozvala na pravou, solárně energeticky uvařenou kořínkovou polévku. Při teplé krmi kníže Vladimír prohlásil, že je ze své hráčské vášně nadobro vyléčen. Navždy!
 
-_Kyjev, pátek_
+> _Kyjev, pátek_
 
-Aničko moje milovaná, Dušičko!
+> _Aničko moje milovaná, Dušičko!_
 
-Píšu Ti z města Kyjeva, kde jsme se nějaký čas zdržovali, protože nebylo jiného zbytí. Lidé jsou tu velice pohostinní a nemohli jsme je zarmoutit jenom proto, že spěcháme porazit Sovětský svaz.
+> _Píšu Ti z města Kyjeva, kde jsme se nějaký čas zdržovali, protože nebylo jiného zbytí. Lidé jsou tu velice pohostinní a nemohli jsme je zarmoutit jenom proto, že spěcháme porazit Sovětský svaz._
 
-Už jsem Ti psal o přívětivé krávě, která nám poradila, abychom vyhledali panovníka Kyjevské Rusi knížete Vladimíra. Říkají mu tady „jasné slunéčko“. Není to pěkné? Představ si, že bychom také my našemu panu prezidentovi říkali „jasné slunéčko“… Já si to představit nedovedu.
+> _Už jsem Ti psal o přívětivé krávě, která nám poradila, abychom vyhledali panovníka Kyjevské Rusi knížete Vladimíra. Říkají mu tady „jasné slunéčko“. Není to pěkné? Představ si, že bychom také my našemu panu prezidentovi říkali „jasné slunéčko“… Já si to představit nedovedu._
 
-A ještě jsme ve stepi potkali chlapíka v černém pyžamu, s kov­bojským kloboukem na hlavě a svislými kníry. Čurila Plenkovič se ten člověk jmenuje. To je, co! To by u nás v Holešovicích ani do hospody nemohl, jak by se mu smáli. Ale tady požívá všeobecné úcty, i když chodí v pyžamu i do kostela. – Bohatě nás pohostil ve svém domě na Ptačím vršku a pak nás zavedl do chrámu archanděla Michaela s plamenným mečem a tam nám ten nejvrchnější pop požehnal zbraně. Prý to pomáhá.
+> _A ještě jsme ve stepi potkali chlapíka v černém pyžamu, s kov­bojským kloboukem na hlavě a svislými kníry. Čurila Plenkovič se ten člověk jmenuje. To je, co! To by u nás v Holešovicích ani do hospody nemohl, jak by se mu smáli. Ale tady požívá všeobecné úcty, i když chodí v pyžamu i do kostela. – Bohatě nás pohostil ve svém domě na Ptačím vršku a pak nás zavedl do chrámu archanděla Michaela s plamenným mečem a tam nám ten nejvrchnější pop požehnal zbraně. Prý to pomáhá._
 
-Pak nás pan Plenkovič zavedl k jasnému slunéčku knížeti Vladimírovi. Jeho manželka kněžna Apraksějevna nás pohostila místní specialitou – studenou kořínkovou polévkou. Velice zvláštní pokrm, chutí obtížně popsatelné, ani se o to nepokusím. Kníže nám ochotně popsal, kudy se dát, abychom ten Sovětský svaz neminuli. Je to sympatický starší pán, rád si hraje, asi to bude věkem. Kůň je jednou hříbětem, člověk dvakrát dítětem, říkala už za protektorátu teta Kateřina.
+> _Pak nás pan Plenkovič zavedl k jasnému slunéčku knížeti Vladimírovi. Jeho manželka kněžna Apraksějevna nás pohostila místní specialitou – studenou kořínkovou polévkou. Velice zvláštní pokrm, chutí obtížně popsatelné, ani se o to nepokusím. Kníže nám ochotně popsal, kudy se dát, abychom ten Sovětský svaz neminuli. Je to sympatický starší pán, rád si hraje, asi to bude věkem. Kůň je jednou hříbětem, člověk dvakrát dítětem, říkala už za protektorátu teta Kateřina._
 
-Taky jsem si v Kyjevě zaskočil na poštu, jestli tam náhodou… a ono ani náhodou. Ale to nic, nemysli si, že je to výčitka! Ani náznak. Stejně jsem s tím nepočítal. Ostatně myslím, žes můj poslední dopis nedostala. Vždyť by to musel být zázrak, kdyby Ti z takové dálky tak brzy došel. Kdoví, kde ještě bloudí. Je tady pěkně, lidé jsou dobří, ale některé věci nefungují tak, jak jsme na to zvyklí.
+> _Taky jsem si v Kyjevě zaskočil na poštu, jestli tam náhodou… a ono ani náhodou. Ale to nic, nemysli si, že je to výčitka! Ani náznak. Stejně jsem s tím nepočítal. Ostatně myslím, žes můj poslední dopis nedostala. Vždyť by to musel být zázrak, kdyby Ti z takové dálky tak brzy došel. Kdoví, kde ještě bloudí. Je tady pěkně, lidé jsou dobří, ale některé věci nefungují tak, jak jsme na to zvyklí._
 
-Že je mi po Tobě moc smutno, Aničko, to Ti ani psát nemusím, že. Vím však, že tam doma, tolik ode mne vzdálená, na mne myslíš a trpělivě čekáš, protože víš, že se tu zbůhdarma neflákám, že tu nejsem za zábavou, nýbrž plním důležité poslání. A že na Tebe bez ustání myslím.
+> _Že je mi po Tobě moc smutno, Aničko, to Ti ani psát nemusím, že. Vím však, že tam doma, tolik ode mne vzdálená, na mne myslíš a trpělivě čekáš, protože víš, že se tu zbůhdarma neflákám, že tu nejsem za zábavou, nýbrž plním důležité poslání. A že na Tebe bez ustání myslím._
 
-_Líbá Tě Tvůj milující  
-Oldřich_
-
-  
+> _Líbá Tě Tvůj milující  
+> Oldřich_
 
 Nastal čas loučení. Vojska plukovníka Kotulána věděla aspoň přibližně, kudy se dát. Nebo spíš kudy se nedat. Moskvě se musí vyhnout velkým obloukem, to jim důrazně kladl na srdce kníže Vladimír ve své hvězdné hodince poté, co schytal pecku do hlavy správně umístěným válečkem na nudle, když opouštěl Peckovu jámu. Teď už zase upadl do nevypočitatelného stavu, bezednou apatii střídala hyperaktivní, nekoordinovaná činorodost. A přitom kněžna Apraksějevna už podávala svoji kořínkovou polévku uvařenou a docela teplou.
 
@@ -1146,8 +1114,8 @@ Ráno vyrazili. Bez kuchaře okultisty Jurajdy jich už bylo jenom šest: velite
 
 Sotva vyjeli, spatřil Pecka ve zpětném zrcátku knížete Vladimíra: vystrčil hlavu ze zemljanky, vylezl na dvoreček, pod levou paží měl solární panel a pod pravou dvouplotýnkový vařič. Rozhlédl se obezřetně a dlouhými kroky skoky zamířil do zastavárny.
 
-Co je napsané, je literatura a nelze to brát doslova. Je to jenom náznak čehosi, co by eventuálně mohlo mít jakýs takýs, několikerý výklad. Záleží na interpretovi. Literatura dokáže vyklouznout z každé nepříjemnosti.
+_Co je napsané, je literatura a nelze to brát doslova. Je to jenom náznak čehosi, co by eventuálně mohlo mít jakýs takýs, několikerý výklad. Záleží na interpretovi. Literatura dokáže vyklouznout z každé nepříjemnosti._
 
-Rozhodl jsem se pro cestu kolem světa a ztroskotal na galéře vprostřed oceánu, v nočních můrách. Osud průměrného galejníka je prostý: přikován k veslu vesluje a vesluje a vesluje tak dlouho, dokud nezemře. Je-li galéra poražena v bitvě, vítězové ponechají galejníky přikované, snad je na oslavu vítězství počastují hltem kořalky. A vesluje se dál. A vesluje a vesluje a vesluje… Nejsou přece tak pošetilí, aby se zbavili funkčního pohonu. Zanechal jsem všech nadějí a vesloval a vesloval a vesloval: bum bum, bum bum, bum bum…
+_Rozhodl jsem se pro cestu kolem světa a ztroskotal na galéře vprostřed oceánu, v nočních můrách. Osud průměrného galejníka je prostý: přikován k veslu vesluje a vesluje a vesluje tak dlouho, dokud nezemře. Je-li galéra poražena v bitvě, vítězové ponechají galejníky přikované, snad je na oslavu vítězství počastují hltem kořalky. A vesluje se dál. A vesluje a vesluje a vesluje… Nejsou přece tak pošetilí, aby se zbavili funkčního pohonu. Zanechal jsem všech nadějí a vesloval a vesloval a vesloval: bum bum, bum bum, bum bum…_
 
-Proč my, suchozemci, tolik sníme o moři? Ďjó, moře! Vylezl jsem z postele, vyčistil si zuby, provedl pár cviků, posnídal kávu prostou, bez cukru a mléka, vykouřil cigaretku – literáti zpravidla kouří na lačný žaludek – a zahleděl se do stěny.
+_Proč my, suchozemci, tolik sníme o moři? Ďjó, moře! Vylezl jsem z postele, vyčistil si zuby, provedl pár cviků, posnídal kávu prostou, bez cukru a mléka, vykouřil cigaretku – literáti zpravidla kouří na lačný žaludek – a zahleděl se do stěny._

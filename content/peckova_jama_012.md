@@ -3,8 +3,6 @@ title: Pod Andělskými křídly
 contentType: prose
 ---
 
-  
-
 Přes den bylo teplo jako v létě, večer se však ochladilo, a kdo měl krb, byl by blázen, kdyby v něm nezatopil. Podzimek se teprve klubal, neposbírané ostružiny už zaschly na větvičkách pichlavých. Na placatém kameni lesní polní cesty ležela protéza horní čelisti s jedenácti zdravými zuby, rozlámaná na čtyři kusy nestejné velikosti, dvanáctý zub chyběl. Zřejmě ho někdo potřeboval, tak si ho vzal. Musel kvůli tomu celou čelist polámat? Jinak by se k zubu nedostal. Jak jen někdo může ztratit horní čelist…
 
 Civilista pacifista Oldřich Navrátil a civilista specialista Longin Pecka dřepěli nad čelistí a kroutili hlavami, jak by kroutil každý, koho něco takového potká. Jak se to může přihodit? Komu? Za jakých okolností?
@@ -25,14 +23,12 @@ Civilista pacifista Oldřich Navrátil a civilista specialista Longin Pecka dř
 
 Měl ten Anděl pravdu, kam se na něj plzeň hrabala… Pili kounickou šestadvacítku, nejlepší pivo na světě, a klábosili o tom, co kdo z nich prožil na zubařském křesle, a soutěžili, koho to víc bolelo. Vítěz ještě nebyl určen, když v Peckově batůžku pípl telefon. Esemeska:
 
-> Proteka zachod u  
-> devcatek v  
-> pokojicku. Strasne  
-> to hrci. Prijd ho  
-> spravit. Skoda  
-> vody. Kotulanova
-
-  
+_Proteka zachod u  
+devcatek v  
+pokojicku. Strasne  
+to hrci. Prijd ho  
+spravit. Skoda  
+vody. Kotulanova_
 
 „Člověk si v klidu ani to pivo nevypije,“ povzdechl si Longin. „Kotu­lánce v St. Pauli netěsní záchod.“
 
@@ -122,13 +118,13 @@ Když bylo uklizeno, vzali se za ruce a Zpod Andělských křídel vydali se na
 
 A tak šli a šli a šli, kočárek vrzal, tráva voněla. Že oni se ti dva, s plným kočárkem, nakonec vydali na cestu kolem světa…
 
-Na cestě kolem světa doporučuji starším cestovatelům míjet území, kde jedí starce setřesené ze stromu. Cestou jsem lelkoval, díval se po vrabcích (znepokojivě jich ubývá, stejně jako chroustů), sešel jsem z cesty a vrabci mě zavedli do vrabčího města Ulmu na řece Dunaji; vystavěli tam vysokánskou katedrálu s měděným vrabcem na střeše. Kdo toho vrabce uvidí, rázem pochopí, že procházet úzkými dveřmi s břevnem napříč je pošetilé. Lepší vrabec na střeše nežli holub v hrsti. Ještě že jsou na světě vrabci, bez nich by nebylo města Ulmu a to by byla škoda. Ti, co se tam narodili, neměli by se kde narodit, a svět by byl bez Einsteina.
+_Na cestě kolem světa doporučuji starším cestovatelům míjet území, kde jedí starce setřesené ze stromu. Cestou jsem lelkoval, díval se po vrabcích (znepokojivě jich ubývá, stejně jako chroustů), sešel jsem z cesty a vrabci mě zavedli do vrabčího města Ulmu na řece Dunaji; vystavěli tam vysokánskou katedrálu s měděným vrabcem na střeše. Kdo toho vrabce uvidí, rázem pochopí, že procházet úzkými dveřmi s břevnem napříč je pošetilé. Lepší vrabec na střeše nežli holub v hrsti. Ještě že jsou na světě vrabci, bez nich by nebylo města Ulmu a to by byla škoda. Ti, co se tam narodili, neměli by se kde narodit, a svět by byl bez Einsteina._
 
-Hned prvního dne narazil jsem v Ulmu na říčku Blau. Protéká městem a vlévá se do Dunaje. Narazil jsem na ni v houfu turistů u staré koželužny, hrázděné a jako stará vrba nakloněné nad vodou. Voda byla čirá, studená vodička, průhledná až ke dnu; v proudu povívaly zelené šlahouny vodního rostlinstva rozkvetlé bílými kvítky a pstruh v tom vodním křoví číhal na rybáře, který se nedostavil; ryba předstírala, že je kus omšelého klacku, jenže ten by dávno uplaval s proudem do Dunaje a Dunajem až do Černého moře, kdežto pstruh musel pracovat ploutvemi, aby zůstal na místě. Díval jsem se do říčky Blau a připadal si jako chrostík, larva v čiré vodě polepená kamínky, očekávající chvíli proměny. Postával jsem nad říčkou Blau pod nakloněnou koželužnou přestavěnou na hotel s nakloněnými podlahami, jednoho dne hoteloví hosté žbluňknou do vody, vyplaší pstruha a mně, nebohému chrostíkovi, křupne skořápka.
+_Hned prvního dne narazil jsem v Ulmu na říčku Blau. Protéká městem a vlévá se do Dunaje. Narazil jsem na ni v houfu turistů u staré koželužny, hrázděné a jako stará vrba nakloněné nad vodou. Voda byla čirá, studená vodička, průhledná až ke dnu; v proudu povívaly zelené šlahouny vodního rostlinstva rozkvetlé bílými kvítky a pstruh v tom vodním křoví číhal na rybáře, který se nedostavil; ryba předstírala, že je kus omšelého klacku, jenže ten by dávno uplaval s proudem do Dunaje a Dunajem až do Černého moře, kdežto pstruh musel pracovat ploutvemi, aby zůstal na místě. Díval jsem se do říčky Blau a připadal si jako chrostík, larva v čiré vodě polepená kamínky, očekávající chvíli proměny. Postával jsem nad říčkou Blau pod nakloněnou koželužnou přestavěnou na hotel s nakloněnými podlahami, jednoho dne hoteloví hosté žbluňknou do vody, vyplaší pstruha a mně, nebohému chrostíkovi, křupne skořápka._
 
-Měl bych pokračovat v cestě kolem světa, když jsem už z cesty sešel a zabloudil do vrabčího města, ale nohy jako by uvízly na břehu říčky, odmítly chůzi a mně tu bylo jako ve snu, ze kterého se nerado probouzí, jako bych byl včarován do tohoto místa, jako bych tady, v davu turistů obdivujících nejstarší dům města, dospěl k cíli svého putování. Dost, hotovo, úkol splněn. Dál nepůjdu, tady je mi dobře, tady zůstanu. Jako zakletý vězel jsem u říčky Blau ve švábském Ulmu a hleděl do čisté voděnky na netečný klacek pohybující sotva znatelně skřelemi a nemohl se z toho očarování vymanit. Když jsem se konečně vyprostil a ušel pár kroků k náměstí s katedrálou, cosi se mnou udělalo čelem vzad a vrátilo mě zpátky k zábradlí u koželužny, nad vodu s bílými kvítky zmítanými čirým proudem. Nemohl a ani nechtěl jsem se tomu ubránit.
+_Měl bych pokračovat v cestě kolem světa, když jsem už z cesty sešel a zabloudil do vrabčího města, ale nohy jako by uvízly na břehu říčky, odmítly chůzi a mně tu bylo jako ve snu, ze kterého se nerado probouzí, jako bych byl včarován do tohoto místa, jako bych tady, v davu turistů obdivujících nejstarší dům města, dospěl k cíli svého putování. Dost, hotovo, úkol splněn. Dál nepůjdu, tady je mi dobře, tady zůstanu. Jako zakletý vězel jsem u říčky Blau ve švábském Ulmu a hleděl do čisté voděnky na netečný klacek pohybující sotva znatelně skřelemi a nemohl se z toho očarování vymanit. Když jsem se konečně vyprostil a ušel pár kroků k náměstí s katedrálou, cosi se mnou udělalo čelem vzad a vrátilo mě zpátky k zábradlí u koželužny, nad vodu s bílými kvítky zmítanými čirým proudem. Nemohl a ani nechtěl jsem se tomu ubránit._
 
-Vězí to kouzlo ve mně napořád. Ve snech se vrací a já vím, že až skončí má cesta kolem světa, rozpustím se v čisté vodě říčky Blau, vteču do Dunaje a pak se rozplynu v Černém moři. Má cesta kolem světa však ještě neskončila.
+_Vězí to kouzlo ve mně napořád. Ve snech se vrací a já vím, že až skončí má cesta kolem světa, rozpustím se v čisté vodě říčky Blau, vteču do Dunaje a pak se rozplynu v Černém moři. Má cesta kolem světa však ještě neskončila._
 
 „Kam jsi schoval tu svou jámu, Longine?“
 
@@ -138,4 +134,4 @@ Vězí to kouzlo ve mně napořád. Ve snech se vrací a já vím, že až skon
 
 „Jámu? Copak jáma se dá někam dát? Copak já mám nějakou jámu?“
 
-_Dopsáno ve Vlkovicích 28. září 2012_
+> _Dopsáno ve Vlkovicích 28. září 2012_
